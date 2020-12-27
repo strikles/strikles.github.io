@@ -512,6 +512,13 @@ Neuroscience and neurolaw have found practical use cases in the Netherlands:
 0. [Real Neurolaw in the Netherlands: The Role of the Developing Brain in the New Adolescent Criminal Law](https://www.frontiersin.org/articles/10.3389/fpsyg.2020.01762/full)
 0. [Other relevant publications related to Neurolaw in The Netherlands](https://www.lawneuro.org/netherlands.php) 
 
+
+<div align="center">
+      <a href="https://en.wikipedia.org/wiki/Doubting_Thomas">
+         <img src="img/Caravaggio_-_The_Incredulity_of_Saint_Thomas.jpg" style="width:100%;">
+      </a>
+</div>
+
 ## [Ending Police Brutality](https://en.wikipedia.org/wiki/Police_brutality)
 
 Social stratification by directing violence towards women and my own parents resulting in abuse of threat assessment systems like [**MOSAIC**](https://en.wikipedia.org/wiki/MOSAIC_threat_assessment_systems) is both repugnant and [fascist](https://en.wikipedia.org/wiki/Fascism)! 
