@@ -19,8 +19,9 @@ In 2004 José Saramago published his novel [**Seeing**](https://en.wikipedia.org
     </a>
 </p>
 
-<!--
+
 ## TLDR - [**_Quod Nihil Scitur_**](https://plato.stanford.edu/entries/francisco-sanches/)
+
 <!--
 For the past 3 decades you preyed upon families by resorting to [Cognitive Biases](https://en.wikipedia.org/wiki/List_of_cognitive_biases) and lack of a [Neurolaw](https://en.wikipedia.org/wiki/Neurolaw) framework, [Neurorights and Mental Freedom awareness](https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies) by attempting to portrait individuals as being "Insane" resorting to distorting **_Faith Trials over Synthetic Telepathy_** and presenting that content to others as **_proof_** the SUT believes he is either **God** or the **Devil**, attempting to portrait SUTs as being Pedos, Xenophobes, Homophobes, Misogynistic, and attempt to **Direct Violence towards Parents and Women**, make fools out of men by **Sabotaging Intercourse** with involuntary perineum contractions, **enslave women via vibrotactile genital abuse** resulting in [**Stockholm Syndrome**](https://en.wikipedia.org/wiki/Stockholm_syndrome).
 -->
@@ -35,10 +36,7 @@ To those who enforce [Extrajudicial Sentences](https://en.wikipedia.org/wiki/Ext
 
 I will not allow you to turn me into a synthetic [**Anders Behring Breivik**](https://en.wikipedia.org/wiki/Anders_Behring_Breivik) via [Cyber Torture](https://www.undocs.org/A/HRC/43/49) and cover your tracks with Psychiatric Fraud via Conventional Pharamcotherapy with a [Inherently High Suicide Risk](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5085732/) in Silence, when [**Electroceuticals**](https://www.sciencedirect.com/science/article/pii/S0019483217308131) paired with drafting [Neurolaw related legislation](https://en.wikipedia.org/wiki/Neurolaw), and promoting awareness of [Neuro Rights and Mental Freedom](https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies) would reduce that risk to near 0.
 
-It may be a good idea for you to remember [**Queen Christina of Sweden**](https://en.wikipedia.org/wiki/Christina,_Queen_of_Sweden) and the [**Order of the Amaranth**](https://en.wikipedia.org/wiki/Order_of_the_Amaranth).
-
-Further, I don't need your **"Trowel and Plumb line"**, [I'll use my 2 Fingers **✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
-
+Also it may be a good idea for you to remember [**Queen Christina of Sweden**](https://en.wikipedia.org/wiki/Christina,_Queen_of_Sweden) and the [**Order of the Amaranth**](https://en.wikipedia.org/wiki/Order_of_the_Amaranth). I don't need your **"Trowel and Plumb line"**, [I'll use my 2 Fingers **✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
 
 ## Cybertorture as a [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) 
 
