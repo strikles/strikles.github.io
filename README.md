@@ -553,8 +553,14 @@ The cybertorture medium used to direct violence towards women could be used to h
 
 # Mentis Morbum Tuum 𝄫
 
-They exact morbid extrajudicial cognitive impairment sentences for entertainment which in my case consist of:
+<p align="center" width="100%">
+    <a href="https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies">
+        <img src="img/t_neurorights.jpg">
+    </a>
+</p>
 
+<!--
+They exact morbid extrajudicial cognitive impairment sentences for entertainment which in my case consist of:
 0. articulating my tongue and jaw to force me to speak in the Portuguese language
 0. forcing me to feel slapped in an attempt to force me to stab myself in the back of the head (cerebellum) every few seconds
 0. attempting to force self-mutilation of my ears every few seconds
@@ -569,22 +575,55 @@ They exact morbid extrajudicial cognitive impairment sentences for entertainment
 0. directing violence towards the people around me
 0. trying to force me to spit on supermarket employees during the current SARS-CoV-2 pandemia
 0. trying to fill my home with fungi forcing me into the shower for relief for long periods with synthetic back pain
+-->
 
 <p align="center" width="100%">
-    <a href="https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies">
-        <img src="img/t_neurorights.jpg">
+    <a href="https://en.wikipedia.org/wiki/Involute_gear">
+        <img src="img/Involute_wheel.gif">
     </a>
 </p>
 
-<!--
-#### Since I left Colégio Militar at age 17 they have attempted to portrait me as being **xenophobic**, **homophobic**, and an **addict** attempting to turn me into a **synthetic psychopath**, **directing violence towards both my parents and women** without success (going as far as engaging in rituals of **intercourse sabotage** via remote control of blood flow and **using a feather to force vibrotactile sensations** resulting in **involuntary perineum contractions** and **sexual frustration** to **magnify the probability of synthetic psychotic behavior** as a result of **sexual frustration** and me directing violence towards my sexual partner) since I was 18 years old in order to force a mediocre life of poverty and mental decrepitude as a drug addict with synthetic pain forced upon me, and me ending a prison cell for a couple of nights and psychiatric care.
--->
+Some of the individuals involved in enforcing the cybertorture extrajudicial sentence who are (or were) associated with Portuguese Law enforcement: 
+
+0. **Luis Nazareth Carvalho Figueira** - [enforced cybertorture in the vicinity of women and even my own mother](https://undocs.org/A/HRC/38/47). Related to [**José Ricardo Nazareth Carvalho Figueira**](https://dre.pt/web/guest/home/-/dre/124826916/details/2/maximized?serie=II&dreId=124826889)
+0. [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized) - In the summer of 2016 after breaking up with my now ex-girlfriend due to a fight (as cybertorture intensified the threat was made of 4 possible futures being forced into my life). I remember getting in trouble [**AT WORK**](https://www.quby.com/) for watching [Blacked.com](https://www.blacked.com/) free content [**AT HOME**](https://hoteljansen.nl/) instead of doing some assignment that was late. I also remember Luis Nazareth Carvalho Figueira interpellating via synthetic telepathy claiming it was <u>"the Portuguese Mob"</u>. I started being tortured daily and after some time I was woken up late at night and Tito asked me to act as a "filho da puta". I never heard Tito before and didn't know what to do. I remember I was pretty tired and wanted the whole thing to be over. After a while I complied and came up with the name of my nanny who was called Salomé and made up some nonsense in the biblical context of [St. John the Baptist](https://en.wikipedia.org/wiki/Ut_queant_laxis)
+0. [**Pedro Miguel Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) - instructed me to jump out of the window in front of my mother whilst remotely gaping my anus as my mother complained she urinated herself in the middle of the night from watching me hit myself in the head.
+0. **Ivo Costa** - I had a nice meal with him not long ago and he claimed these cybertorture procedures were all documented and the torture I was enduring was just a joke. He claimed I disrespected his girlfriend whilst we were students at school acting as a xenophobe! I don't remember ever insulting his girlfriend since I never met her but I do remember making a bad joke regarding his nose.
+0. **João Pinheiro**
+
+<p align="center" width="100%">
+    <a href="img/involute.gif">
+        <img src="img/involute.gif">
+    </a>
+</p>
+
+Examples of individuals recruited to exact extrajudicial sentences via Cybertorture are:
+
+0. [Eduardo Metzner]() - Left Colégio Militar in 1993. Not sure what his role in this is! Used to be my real friend ;(
+0. [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) pretended to be my friend - behaved as a homophobe (calling everyone "Paneleiro"), a xenophobe (using the Portuguese word "Preto de merda" to address one of his best friends) and misogynistic (insulting my former girlfriend and addressing women as "Putas") trying to get me to mimic his behaviour and participated in mongering racial tensions. He is a clear adept of social stratification often repeating the phrase **"A winner is a winner and a loser is a loser"**
+0. [**Tiago Jorge Roque**](https://www.facebook.com/tiago.j.roque) - Neighbour of Gonçalo Bandeira Duarte
+0. **João Leiria** - Former "Tapada Crew" employee (where several former Colégio Militar students work) and friend of Gonçalo Bandeira Duarte
+0. **Diogo Calado** - "Tapada Crew" employee
+0. **Rui Calado** - "Tapada Crew" employee
+0. [Bernardo Telles Correia]() - approached me during the school anniversary in March 2017 without me having a clue who he was with the strange phrase "As above so below". Seems to be related to Diogo Telles Correia.
+0. Carla Maria Marinho Rodrigues - We went out for a while and intercourse was consistently sabotaged with involuntary perineum contractions with rituals involving methods such as use of a feather. I lasted no more than 10s. I recall a conversation where she mentioned some interest in a [tiny haptic soldier](img/IMG_0847.JPG) back ca. 2005. Not sure if that meant she fell victim to remote vibrotactile genital abuse resulting in [Stockholm Syndrome](https://en.wikipedia.org/wiki/Stockholm_syndrome). She was acquainted with a neighbor of my mother called Nuno Correia (for whom I later worked for 3 days at [CGD](https://www.cgd.pt/) via Merkkurio Digital resulting in a fallout when I found out my CGD salary would be 1400+ euros and he would only pay me 500 euros and keep 900 euros for himself). I was introduced to Nuno the day we broke up.
+0. [**Jasper Kums**](https://nl.linkedin.com/in/jasperkums) - My former employer (2014-2015). Started by paying me 300 euros as an insult to remind me of my worst moment in Portugal, attempted to turn me into a stalker and conspired in portraing me as a drug addict and directing [violence towards women](https://undocs.org/A/HRC/38/47). On the 1st of January 2017 he positioned himself in front of his office after midnight as I was tortured in a most grotesque way as his name was repeated over synthetic telepathy. He acted innocent and I spat on him. <u>He walked away holding his face pretending I had slapped him. To this day thermoelastic like payloads engineered to generate propagation waves (with a large spread area simulating slaps) combined with a high frequency oscillatory payload simulating masturbation are forced upon soft tissues of my head and brain mass every few seconds combined with synthetic hyperhidrosis to maximize impact and bias the probability towards self-harm.</u> **I believe Jasper Kums is related to a Police Officer in the Netherlands. Today the 25th of December 2020 since around midnight in anticipation of a court hearing to force conventional pharmacotherapy upon me requested by Dr. Emile Barkhof the rhythm of these payloads delivered to my head has intensified significantly trying to guarantee self-harm/self-mutilation as a Christmas gift with grotesque sonic and vibrotactile payloads of kisses delivered periodically!**
+0. [Gonçalo Carvalho](https://nl.linkedin.com/in/gccarvalho/de) We worked together at Quby. During the summer/autumn of 2016 Gonçalo participated in a cybertorture session of remote sexual abuse whilst forcing synthetic hyperhidrosis and pretending to be engaging in intercourse with the Queen of the Netherlands via synthetic telepathy. I suspect he may be somehow related to someone who worked at [ISCPSI](http://www.iscpsi.pt/) where Pedro Miguel Grilo also used to work! I truly hope a circus was not setup at ISCPSI.
+
+<p align="center" width="100%">
+    <a href="img/smile.png">
+        <img src="img/smile.png">
+    </a>
+</p>
 
 ## PT - Colégio Militar, largo da Luz, Portugal
-
+0. Since I was a student at Colégio Militar at age 14 Faith Trials were performed.
+0. This was followed by placing a child in my mothers home under the false pretense of me having to act as her tutor followed by attempting to direct a pedo attack on the child via synthetic telepathy whilst my mother watched and students from the last year supervisioned the whole procedure remotely in an attempt to kick me out of school!
+0. I remember the psychotic change in environment as I arrived school on Sundays (older students inspecting bags and stealing food brought from home) and me talking nonsense by complaining about my weekends spent with my fathers family to get into that "psycho" mode since I was often interpellated via synthetic telepathy and often repeated what others said to me (things which I saw as dark/dirty humor since we all laughed such as "You only get into the Police if you can't get into anywhere else" or being told that "Chinese Condoms were smaller than European condoms" without me ever seeing one, or being asked to tell Paulo Sousa that he was stealing money from his uncles vault). Many of the things I complained about my family were made up. The only valid complaint was my father insisting on watching "Big Show SIC". I saw Ivo as one of my best friends after 1993 
 
 ## UK
 0. In 1996 forced testicular pain to the point I could barely walk was forced in the vicinity of my girlfriend who I will call girlfriend A.
+0. rituals of **intercourse sabotage** via remote control of blood flow and **using a feather to force vibrotactile sensations** resulting in **involuntary perineum contractions** and **sexual frustration** to **magnify the probability of synthetic psychotic behavior** as a result of **sexual frustration** and me directing violence towards my sexual partner
 0. In 2001 I was forced to return to Portugal as I roamed the streets of London with synthetic telepathy being forced upon me!
 
 ## PT
@@ -604,64 +643,28 @@ They exact morbid extrajudicial cognitive impairment sentences for entertainment
 0. In 2017 Pedro Grilo (427 - 1988) who instructed me to jump out of a rooftop.
 0. In 2019 Pedro Grilo (427 - 1988) who instructed me to jump out of the window whilst gaping my anus (in front of my mother whilst she complained she urinated herself from watching me hit myself as I was tortured in the middle of the night).
 
-<p align="center" width="100%">
-    <a href="https://en.wikipedia.org/wiki/Involute_gear">
-        <img src="img/Involute_wheel.gif">
-    </a>
-</p>
-
-Some of the individuals involved in enforcing the cybertorture extrajudicial sentence who are (or were) associated with Portuguese Law enforcement: 
-
-0. **Luis Nazareth Carvalho Figueira** - [enforced cybertorture in the vicinity of women and even my own mother](https://undocs.org/A/HRC/38/47). Related to [**José Ricardo Nazareth Carvalho Figueira**](https://dre.pt/web/guest/home/-/dre/124826916/details/2/maximized?serie=II&dreId=124826889)
-0. [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized) - In the summer of 2016 after breaking up with my now ex-girlfriend due to a fight (as cybertorture intensified the threat was made of 4 possible futures being forced into my life). I remember getting in trouble [**AT WORK**](https://www.quby.com/) for watching [Blacked.com](https://www.blacked.com/) free content [**AT HOME**](https://hoteljansen.nl/) instead of doing some assignment that was late. I also remember Luis Nazareth Carvalho Figueira interpellating via synthetic telepathy claiming it was <u>"the Portuguese Mob"</u>. I started being tortured daily and after some time I was woken up late at night and Tito asked me to act as a "filho da puta". I never heard Tito before and didn't know what to do. I remember I was pretty tired and wanted the whole thing to be over. After a while I complied and came up with the name of my nanny who was called Salomé and made up some nonsense in the biblical context of [St. John the Baptist](https://en.wikipedia.org/wiki/Ut_queant_laxis)
-0. [**Pedro Miguel Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) - instructed me to jump out of the window in front of my mother whilst remotely gaping my anus as my mother complained she urinated herself in the middle of the night from watching me hit myself in the head.
-0. **Ivo Costa** - I had a nice meal with him not long ago and he claimed these cybertorture procedures were all documented and the torture I was enduring was just a joke. He claimed I disrespected his girlfriend whilst we were students at school acting as a xenophobe! I don't remember ever insulting his girlfriend since I never met her but I do remember making a bad joke regarding his nose. I also remember the psychotic change in environment as I arrived school on Sundays (older students inspecting bags and stealing food brought from home) and me talking nonsense by complaining about my weekends spent with my fathers family to get into that "psycho" mode since I was often interpellated via synthetic telepathy and often repeated what others said to me (things which I saw as dark/dirty humor since we all laughed such as "You only get into the Police if you can't get into anywhere else" or being told that "Chinese Condoms were smaller than European condoms" without me ever seeing one, or being asked to tell Paulo Sousa that he was stealing money from his uncles vault). Many of the things I complained about my family were made up. The only valid complaint was my father insisting on watching "Big Show SIC". I saw Ivo as one of my best friends after 1993 ;(
-0. **João Pinheiro**
-
-<p align="center" width="100%">
-    <a href="img/involute.gif">
-        <img src="img/involute.gif">
-    </a>
-</p>
-
-Examples of individuals recruited to exact extrajudicial sentences via Cybertorture are:
-
-0. [Eduardo Metzner]() - Left Colégio Militar in 1993. Not sure what his role in this is! Used to be my real friend ;(
-0. [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) pretended to be my friend - behaved as a homophobe (calling everyone "Paneleiro"), a xenophobe (using the Portuguese word "Preto de merda" to address one of his best friends) and misogynistic (insulting my former girlfriend and addressing women as "Putas") trying to get me to mimic his behaviour and participated in mongering racial tensions. He is a clear adept of social stratification often repeating the phrase **"A winner is a winner and a loser is a loser"**
-0. [**Tiago Jorge Roque**](https://www.facebook.com/tiago.j.roque) - Neighbour of Gonçalo Bandeira Duarte
-0. **João Leiria** - Former "Tapada Crew" employee (where several former Colégio Militar students work) and friend of Gonçalo Bandeira Duarte
-0. **Diogo Calado** - "Tapada Crew" employee
-0. **Rui Calado** - "Tapada Crew" employee
-0. [Bernardo Telles Correia]() - approached me during the school anniversary in March 2017 without me having a clue who he was with the strange phrase "As above so below". Seems to be related to Diogo Telles Correia.
-0. Carla Maria Marinho Rodrigues - We went out for a while and intercourse was consistently sabotaged with involuntary perineum contractions with rituals involving methods such as use of a feather. I lasted no more than 10s. I recall a conversation where she mentioned some interest in a [tiny haptic soldier](img/IMG_0847.JPG) back ca. 2005. Not sure if that meant she fell victim to remote vibrotactile genital abuse resulting in [Stockholm Syndrome](https://en.wikipedia.org/wiki/Stockholm_syndrome). She was acquainted with a neighbor of my mother called Nuno Correia (for whom I later worked for 3 days at [CGD](https://www.cgd.pt/) via Merkkurio Digital resulting in a fallout when I found out my CGD salary would be 1400+ euros and he would only pay me 500 euros and keep 900 euros for himself). I was introduced to Nuno the day we broke up. **Today the 25th of December 2020 as I was woken up in the middle of the night with synthetic heartburn and mechanoreceptors in my whole body being bombarded with a high frequency payload he attempted to portrait himself as someone who would be willing to help get rid of the individuals torturing me under some unknown condition!**
-0. [**Jasper Kums**](https://nl.linkedin.com/in/jasperkums) - My former employer (2014-2015). Started by paying me 300 euros as an insult to remind me of my worst moment in Portugal, attempted to turn me into a stalker and conspired in portraing me as a drug addict and directing [violence towards women](https://undocs.org/A/HRC/38/47). On the 1st of January 2017 he positioned himself in front of his office after midnight as I was tortured in a most grotesque way as his name was repeated over synthetic telepathy. He acted innocent and I spat on him. <u>He walked away holding his face pretending I had slapped him. To this day thermoelastic like payloads engineered to generate propagation waves (with a large spread area simulating slaps) combined with a high frequency oscillatory payload simulating masturbation are forced upon soft tissues of my head and brain mass every few seconds combined with synthetic hyperhidrosis to maximize impact and bias the probability towards self-harm.</u> **I believe Jasper Kums is related to a Police Officer in the Netherlands. Today the 25th of December 2020 since around midnight in anticipation of a court hearing to force conventional pharmacotherapy upon me requested by Dr. Emile Barkhof the rhythm of these payloads delivered to my head has intensified significantly trying to guarantee self-harm/self-mutilation as a Christmas gift with grotesque sonic and vibrotactile payloads of kisses delivered periodically!**
-0. [Gonçalo Carvalho](https://nl.linkedin.com/in/gccarvalho/de) We worked together at Quby. During the summer/autumn of 2016 Gonçalo participated in a cybertorture session of remote sexual abuse whilst forcing synthetic hyperhidrosis and pretending to be engaging in intercourse with the Queen of the Netherlands via synthetic telepathy. I suspect he may be somehow related to someone who worked at [ISCPSI](http://www.iscpsi.pt/) where Pedro Miguel Grilo also used to work! I truly hope a circus was not setup at ISCPSI.
-
-<p align="center" width="100%">
-    <a href="img/smile.png">
-        <img src="img/smile.png">
-    </a>
-</p>
 
 #### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment is aggravated in the presence of my elderly mother jeopardizing her mental and physical well being as a sentence to both of us for her decision not to allow me to be coherced out of Colégio Militar (largo da Luz, Portugal) at age 14 since I had very good grades!
+
+#### It's very uncool to wake me up with pain on my left ear on a daily basis to the point I could barely open my mouth and magnifying that pain trying to make me spit on the face of an Albert Heijn employee when I was about to pay during the current [SARS-CoV-2 pandemia](https://medium.com/@wclittle/coronavirus-disease-2019-covid-19-understanding-the-epidemiology-biochemistry-and-cognitive-e8b3512b75ea), gambling with [biowarfare](https://news.un.org/en/story/2020/11/1077932) just to force commitment to a psychiatric prison hospital or simple incarceration.
+
+### Since the 14th of December 2020 the torturous procedure has been intensified with a large vibrotactile and anal component in antecipation of a court hearing to force conventional pharmacotherapy and psychiatric fraud upon me!
 
 #### For the most part of 2020 these individuals exacting my extrajudicial sentence have directed their full attention towards constant vibrotactile genital torture with preludes of grotesque, distorted and amplified sonic payloads of kisses focused on my head and inner ear delivered periodically, making me conclude they have a morbid and megalomaniac fetish related to forcing self-harm of genitalia.
 
 #### For some time now [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) and his social group and DJ friends recruited for the purpose who monger racial hatred with false accusations of xenophobia and several others have been exacting the extrajudicial sentences, whilst trying to look like professionals at destroying lives. 
 
-#### It's very uncool to wake me up with pain on my left ear on a daily basis to the point I could barely open my mouth and magnifying that pain trying to make me spit on the face of an Albert Heijn employee when I was about to pay during the current [SARS-CoV-2 pandemia](https://medium.com/@wclittle/coronavirus-disease-2019-covid-19-understanding-the-epidemiology-biochemistry-and-cognitive-e8b3512b75ea), gambling with [biowarfare](https://news.un.org/en/story/2020/11/1077932) just to force commitment to a psychiatric prison hospital or simple incarceration.
+#### Nuno Correia - Today the 25th of December 2020 as I was woken up in the middle of the night with synthetic heartburn and mechanoreceptors in my whole body being bombarded with a high frequency payload he attempted to portrait himself as someone who would be willing to help get rid of the individuals torturing me under some unknown condition!
+
+#### 27th December 2020 - I believe some freemasons were watching endless tests of Faith as vibrotactile genital torture and anal insinuations were forced upon me to sabotage reading the book "Optimal Control and Estimation by Stengel". I stated it was heresy to claim to be Catholic and believe in a Grand Architect of the Universe simultaneously and that one shall not worship false idols as a provocation resulting in numerous "Boos". I also stated that I would ridicule "The GAU concept" if those performing and watching the faith trials corrected course, stopped stratifying society and ended psychiatric fraud via forced pharmacotherapy and it would be a better idea to promote electroceuticals instead in anticipation of a court hearing to force such a treatment upon me. After that I sent my mother the encyclical letter in Portuguese [**_"Deus Caritas Est"_**](http://www.vatican.va/content/benedict-xvi/en/encyclicals/documents/hf_ben-xvi_enc_20051225_deus-caritas-est.html) by Pope Benedict XVI, this was followed by sabotaging attempts to read it in English. Portuguese individuals resorting to Cyber Torture for cognitive impairment seemed to attempt to prove that I am not Catholic and hence insane whilst asking in anxiety "Conseguiste ?" repeatedly, meaning "Did you prove it ?"
+
+#### Attempts to perpetuate psychiatric fraud and false therapy under a misdiagnosis of **paranoid schizophrenia** as a cover for an illegal sentence of cognitive impairment, forcing me to live out of welfare or attempting to force my return to Portugal will result in seeking [legal action](https://www.macfound.org/networks/research-network-on-law-and-neuroscience/) and asking for [**Refugee Status**](https://www.redcross.org.uk/get-help/get-help-as-a-refugee) :(
 
 #### Luis Nazareth Carvalho Figueira asked me not to approach women in 2016 as those acting in criminal association with [Jasper Kums](https://nl.linkedin.com/in/jasperkums) conspired to turn me into a stalker and violent towards women without much success! As such I've taken vows of cellibacy in order to comply with his request and address the insinuation of my father as master of my romantic life whilst gambling my physical and mental well being to exact psychiatric abuse and false therapy!
 
-#### I am happy I am rather passive or by now I would most likely be dead.
-
 > **Multiple complaints were filled with the police, PSP, IGAI and tweets were sent to @FCGulbenkian, @fchampalimaud and @UN from my account @Claudio56185831 in order for the individuals enforcing this extrajudicial Cybertorture sentence to be denounced without anyone putting an end to this morbid spectacle of former colégio militar students and recruited collaborators (like [Gonçalo Bandeira Duarte](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) who conspired to turn me into a drug addict by waking me up in the middle of the night, falsely accused me of being a xenophobe and a homophobe to monger racial hatred and raveled like a happy pig in a pool of excrement when watching a video of an individual twitching on the floor after shooting himself in the head at a police station) trying to look SUAVE and professional at stratifying society by exacting extrajudicial sentences gambling self-harm and directing violence towards others to force psychiatric abuse and false therapy in front of an audience under the false pretense of making me cry and forcing me to return to Portugal to live with my mother!**
 
-Since I was a student at Colégio Militar at age 14 Faith Trials were performed. Since 2016 several tests of Faith are performed sometimes on a daily basis. On the 27th December 2020 I believe some freemasons were watching endless tests of Faith as vibrotactile genital torture and anal insinuations were forced upon me to sabotage reading the book "Optimal Control and Estimation by Stengel". I stated it was heresy to claim to be Catholic and believe in a Grand Architect of the Universe simultaneously and that one shall not worship false idols as a provocation resulting in numerous "Boos". I also stated that I would ridicule "The GAU concept" if those performing and watching the faith trials corrected course, stopped stratifying society and ended psychiatric fraud via forced pharmacotherapy and it would be a better idea to promote electroceuticals instead in anticipation of a court hearing to force such a treatment upon me. After that I sent my mother the encyclical letter in Portuguese [**_"Deus Caritas Est"_**](http://www.vatican.va/content/benedict-xvi/en/encyclicals/documents/hf_ben-xvi_enc_20051225_deus-caritas-est.html) by Pope Benedict XVI, this was followed by sabotaging attempts to read it in English. Portuguese individuals resorting to Cyber Torture for cognitive impairment seemed to attempt to prove that I am not Catholic and hence insane whilst asking in anxiety "Conseguiste ?" repeatedly, meaning "Did you prove it ?"
-
-#### Attempts to perpetuate psychiatric fraud and false therapy under a misdiagnosis of **paranoid schizophrenia** as a cover for an illegal sentence of cognitive impairment, forcing me to live out of welfare or attempting to force my return to Portugal will result in seeking [legal action](https://www.macfound.org/networks/research-network-on-law-and-neuroscience/) and asking for [**Refugee Status**](https://www.redcross.org.uk/get-help/get-help-as-a-refugee) :(
- 
- <p align="center" width="100%">
+<p align="center" width="100%">
     <a href="https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies">
         <img src="img/t_mental_freedom_r.jpg">
     </a>
