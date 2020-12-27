@@ -577,12 +577,6 @@ They exact morbid extrajudicial cognitive impairment sentences for entertainment
 0. trying to fill my home with fungi forcing me into the shower for relief for long periods with synthetic back pain
 -->
 
-<p align="center" width="100%">
-    <a href="https://en.wikipedia.org/wiki/Involute_gear">
-        <img src="img/Involute_wheel.gif">
-    </a>
-</p>
-
 Some of the individuals involved in enforcing the cybertorture extrajudicial sentence who are (or were) associated with Portuguese Law enforcement: 
 
 0. **Luis Nazareth Carvalho Figueira** - [enforced cybertorture in the vicinity of women and even my own mother](https://undocs.org/A/HRC/38/47). Related to [**José Ricardo Nazareth Carvalho Figueira**](https://dre.pt/web/guest/home/-/dre/124826916/details/2/maximized?serie=II&dreId=124826889)
@@ -591,9 +585,10 @@ Some of the individuals involved in enforcing the cybertorture extrajudicial sen
 0. **Ivo Costa** - I had a nice meal with him not long ago and he claimed these cybertorture procedures were all documented and the torture I was enduring was just a joke. He claimed I disrespected his girlfriend whilst we were students at school acting as a xenophobe! I don't remember ever insulting his girlfriend since I never met her but I do remember making a bad joke regarding his nose. I saw Ivo as one of my best friends after 1993 :(
 0. **João Pinheiro**
 
+
 <p align="center" width="100%">
-    <a href="img/involute.gif">
-        <img src="img/involute.gif">
+    <a href="https://en.wikipedia.org/wiki/Involute_gear">
+        <img src="img/Involute_wheel.gif">
     </a>
 </p>
 
@@ -611,8 +606,8 @@ Examples of individuals recruited to exact extrajudicial sentences via Cybertort
 0. [Gonçalo Carvalho](https://nl.linkedin.com/in/gccarvalho/de) We worked together at Quby. During the summer/autumn of 2016 Gonçalo participated in a cybertorture session of remote sexual abuse whilst forcing synthetic hyperhidrosis and pretending to be engaging in intercourse with the Queen of the Netherlands via synthetic telepathy. I suspect he may be somehow related to someone who worked at [ISCPSI](http://www.iscpsi.pt/) where Pedro Miguel Grilo also used to work! I truly hope a circus was not setup at ISCPSI.
 
 <p align="center" width="100%">
-    <a href="img/smile.png">
-        <img src="img/smile.png">
+    <a href="img/involute.gif">
+        <img src="img/involute.gif">
     </a>
 </p>
 
@@ -644,11 +639,18 @@ Examples of individuals recruited to exact extrajudicial sentences via Cybertort
 0. In 2017 Pedro Grilo (427 - 1988) who instructed me to jump out of a rooftop.
 0. In 2019 Pedro Grilo (427 - 1988) who instructed me to jump out of the window whilst gaping my anus (in front of my mother whilst she complained she urinated herself from watching me hit myself as I was tortured in the middle of the night).
 
+
 #### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment is aggravated in the presence of my elderly mother jeopardizing her mental and physical well being as a sentence to both of us for her decision not to allow me to be coherced out of Colégio Militar (largo da Luz, Portugal) at age 14 since I had very good grades!
 
 #### For the most part of 2020 these individuals exacting my extrajudicial sentence have directed their full attention towards constant vibrotactile genital torture with preludes of grotesque, distorted and amplified sonic payloads of kisses focused on my head and inner ear delivered periodically, making me conclude they have a morbid and megalomaniac fetish related to forcing self-harm of genitalia.
 
 #### It's very uncool to wake me up with pain on my left ear on a daily basis to the point I could barely open my mouth and magnifying that pain trying to make me spit on the face of an Albert Heijn employee when I was about to pay during the current [SARS-CoV-2 pandemia](https://medium.com/@wclittle/coronavirus-disease-2019-covid-19-understanding-the-epidemiology-biochemistry-and-cognitive-e8b3512b75ea), gambling with [biowarfare](https://news.un.org/en/story/2020/11/1077932) just to force commitment to a psychiatric prison hospital or simple incarceration.
+
+<p align="center" width="100%">
+    <a href="img/smile.png">
+        <img src="img/smile.png">
+    </a>
+</p>
 
 ### Since the 14th of December 2020 the torturous procedure has been intensified with a large vibrotactile and anal component in antecipation of a court hearing to force conventional pharmacotherapy and psychiatric fraud upon me!
 
