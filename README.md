@@ -559,6 +559,8 @@ The cybertorture medium used to direct violence towards women could be used to h
     </a>
 </p>
 
+### Since the 14th of December 2020 the torturous procedure has been intensified with a large vibrotactile and anal component in antecipation of a court hearing to force conventional pharmacotherapy and psychiatric fraud upon me!
+
 <!--
 They exact morbid extrajudicial cognitive impairment sentences for entertainment which in my case consist of:
 0. articulating my tongue and jaw to force me to speak in the Portuguese language
@@ -651,8 +653,6 @@ Examples of individuals recruited to exact extrajudicial sentences via Cybertort
         <img src="img/smile.png">
     </a>
 </p>
-
-### Since the 14th of December 2020 the torturous procedure has been intensified with a large vibrotactile and anal component in antecipation of a court hearing to force conventional pharmacotherapy and psychiatric fraud upon me!
 
 #### For some time now [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) and his social group and DJ friends recruited for the purpose who monger racial hatred with false accusations of xenophobia and several others have been exacting the extrajudicial sentences, whilst trying to look like professionals at destroying lives. 
 
