@@ -645,7 +645,7 @@ These individuals act in criminal association with several others such as:
 0. Carla Maria Marinho Rodrigues (who seems determined to force me to mutilate myself as revenge for insinuating she was a cocaine addict) and Nuno Correia (who acts in criminal association with his mother who is a nurse and my mothers neighbor at the 12th floor. I worked for Nuno for 3 day at Merkkurio Digital)
 0. Individuals associated to the former owners of ["Água pela Barba" next to Jardim do Adamastor at Rua do Almada, Lisboa](https://goo.gl/maps/S5dwABC3DVC2Zsjv9) some of which were recruited and sent to the Netherlands (like Jessica owner of the mobile phone +31 684166784) and involved their social groups.
 
-Several others.
+These individuals enforce a cognitive impairment extrajudicial sentence, direct violence towards others (including women, my parents, police officers, psychiatrists and medical personnel) sabotage everything I do, attempting to force me to hurt myself instead making it impossible to a job and work in the physical vicinity of others to aid their cause of psychiatric fraud and false therapy in the form of forced conventional pharamcotherapy whilst trying to look like **artists** at forcing me to hurt muyself with amplified and distorted sonic and vibrotactile preludes of grotesque "Kisses" forced upon soft tissues in head and brain mass!
 
 <u>These intensify this treatment in the presence of my elderly mother jeopardizing her mental and physical well being as a sentence to both of us for not leaving Colégio Militar at age 14 after performing Faith Trials over synthetic telepathy and attempting to portrait me as a Pedo to force me out of school!</u>
 
