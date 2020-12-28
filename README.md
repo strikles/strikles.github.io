@@ -39,7 +39,7 @@ I will not allow [Collaborationists](https://en.wikipedia.org/wiki/Collaboration
 
 I am pretty happy with my **Very Male Gender**, and am NOT Gender Dysphoric in any way as former students from Colégio Militar (Largo da Luz, Portugal) attempted to insinuate, going as far as resorting to Remote Vibrotactile Genital Torture, Cyber Sodomy and forcing a misdiagnosis of Paranoid Schizophrenia in an attempt to force acts of self-harm), and I would like to remind those in Portugal behaving like primates and engaging in a Mars versus Venus banana quest, namely DJ's and Psychiatrists leading humanity astray, and others worldwide, the quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/) also includes [**Intersex People**](https://en.wikipedia.org/wiki/Hermaphrodite) ;)
 
-I've vowed to fight inequality as part of my Catyholic Confirmation Rite and have taken vows of cellibacy to make sure we will achieve our objective! Also I don't need your **"Trowel and Plumb line"**, [**I'll use my 2 Fingers instead ✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
+I've vowed to fight inequality as part of my Catyholic Confirmation Rite and to do something for society upon leaving Colégio Militar. As such I have taken vows of cellibacy to make sure we will achieve our objective! Also I don't need your **"Trowel and Plumb line"**, [**I'll use my 2 Fingers instead ✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
 
 ## Cybertorture as a [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) 
 
