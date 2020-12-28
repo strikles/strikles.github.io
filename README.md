@@ -38,7 +38,7 @@ I will not allow [Collaborationists](https://en.wikipedia.org/wiki/Collaboration
 
 Also it may be a good idea for you to remember [**Queen Christina of Sweden**](https://en.wikipedia.org/wiki/Christina,_Queen_of_Sweden), the [**Extinct Order of the Amaranth**](https://en.wikipedia.org/wiki/Order_of_the_Amaranth) and the Quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/). I don't need your **"Trowel and Plumb line"**, [I'll use my 2 Fingers **✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
 
-*And for those in Portugal who behave like primates and engage in a Mars versus Venus mentality the quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/) also includes [Hemaphrodites](https://en.wikipedia.org/wiki/Hermaphrodite) ;)*
+*And for those in Portugal who behave like primates and engage in a Mars versus Venus mentality, leading humanity astray, the quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/) also includes [Hemaphrodites](https://en.wikipedia.org/wiki/Hermaphrodite) ;)*
 
 ## Cybertorture as a [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) 
 
