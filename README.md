@@ -631,17 +631,17 @@ The cybertorture medium used to direct violence towards women could be used to h
 
 #### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment has been aggravated by Former Colégio Militar Students who worked for the security staff of the President of the Portuguese Republic like:
 
-0. Luis Nazareth Carvalho Figueira (17 at CM) @PSP who planned this since I was a teenager and recruited Tito Eurico Miranda Fernandes (15 at CM) @PSP
+0. Luis Nazareth Carvalho Figueira (17 at CM) @PSP who planned this since I was a teenager and recruited [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized) (15 at CM) @PSP
 
 Other Portuguese Law Enforcement Officers like:
 
-0. Pedro Miguel Grilo (427 at CM) @PSP and João Pinheiro (277 at CM) former @PSP
+0. [**Pedro Miguel Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) (427 at CM) @PSP and João Pinheiro (277 at CM) former @PSP
 
 These individuals act in criminal association with several others such as:
 
-0. Jasper Kums (my former employeer @EenvoudAgency) who attempted to turn me into a stalker!
-0. Gonçalo Carvalho (my former colleague at @Quby) who attempted to drive me insane by insinuating he was having sex with Queen Maxima of the Netherlands over synthetic telepathy as I was sexually abused remotely!
-0. Gonçalo Bandeira Duarte (a known criminal who conspired to get me to mimick his xenoophobic, homophobic and misogynistic behavior), Tiago Jorge Roque (his neighbor), João Leiria (a former Tapada Crew employee @WorldCrewEvents. Employees at Tapada Crew have ties to Colégio Militar and neighbors of Gonçalo Bandeira Duarte)
+0. [**Jasper Kums**](https://nl.linkedin.com/in/jasperkums) (my former employeer @EenvoudAgency) who attempted to turn me into a stalker!
+0. [**Gonçalo Carvalho**](https://nl.linkedin.com/in/gccarvalho/de) (my former colleague at @Quby and possibly related to [ISCPSI](http://www.iscpsi.pt/) where Pedro Miguel Grilo also used to work) who attempted to drive me insane by insinuating he was having sex with Queen Maxima of the Netherlands over synthetic telepathy as I was sexually abused remotely!
+0. [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) (a known criminal who conspired to get me to mimick his xenophobic, homophobic and misogynistic behavior), [**Tiago Jorge Roque**](https://www.facebook.com/tiago.j.roque) (his neighbor), João Leiria (a former Tapada Crew employee @WorldCrewEvents. Employees at Tapada Crew have ties to Colégio Militar and neighbors of Gonçalo Bandeira Duarte)
 0. Carla Maria Marinho Rodrigues (who seems determined to force me to mutilate myself as revenge for insinuating she was a cocaine addict) and Nuno Correia (who acts in criminal association with his mother who is a nurse and my mothers neighbor at the 12th floor. I worked for Nuno for 3 day at Merkkurio Digital and I hope other family members like his father and his brother haven't turned the Justice System in the Netherlands into a Theatric Circus).
 0. A very large number of individuals associated to the former owners of ["Água pela Barba" next to Jardim do Adamastor at Rua do Almada, Lisboa](https://goo.gl/maps/S5dwABC3DVC2Zsjv9) some of which were recruited and sent to the Netherlands (like Jessica owner of the mobile phone +31 684166784) and involved their social groups (which include a couple consisting of a DJ who goes by the name of Dresh, his influential father who I never met and his girlfriend who may be a psychiatrist).
 
