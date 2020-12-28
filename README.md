@@ -142,7 +142,7 @@ Grotesque examples:
 
 <p align="center" width="100%">
     <a href="https://www.wpanet.org/policies">
-        <img src="img/WPA logo.webp">
+        <img src="img/png-clipart-american-journal-of-psychiatry-world-psychiatric-association-mental-health-organization-health-text-trademark.png">
     </a>
 </p>
 
