@@ -631,11 +631,11 @@ The cybertorture medium used to direct violence towards women could be used to h
 
 #### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment has been aggravated by Former Colégio Militar Students who worked for the security staff of the President of the Portuguese Republic like:
 
-0. Tito Eurico Miranda Fernandes @PSP and Luis Nazareth Carvalho Figueira @PSP
+0. Luis Nazareth Carvalho Figueira (17 at CM) @PSP who planned this since I was a teenager and recruited Tito Eurico Miranda Fernandes (15 at CM) @PSP
 
 Other Portuguese Law Enforcement Officers like:
 
-0. Pedro Miguel Grilo @PSP
+0. Pedro Miguel Grilo (427 at CM) @PSP and João Pinheiro (277 at CM) former @PSP
 
 These individuals act in criminal association with several others such as:
 
