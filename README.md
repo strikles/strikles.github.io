@@ -38,7 +38,7 @@ I will not allow [Collaborationists](https://en.wikipedia.org/wiki/Collaboration
 
 It may be a good idea for you to remember [**Queen Christina of Sweden**](https://en.wikipedia.org/wiki/Christina,_Queen_of_Sweden), the [**Extinct Order of the Amaranth**](https://en.wikipedia.org/wiki/Order_of_the_Amaranth) and the [**Quest for Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/).
 
-For those in Portugal who behave like primates and engage in a Mars versus Venus mentality, leading humanity astray, the quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/) also includes [Hemaphrodites](https://en.wikipedia.org/wiki/Hermaphrodite).
+Whilst I am pretty happy with my **Very Male Gender**, and am NOT Gender Dysphoric in any way as former students from Colégio Militar (Largo da Luz, Portugal) attempted to insinuate, going as far as resorting to Remote Vibrotactile Genital Torture, Cyber Sodomy and forcing a misdiagnosis of Paranoid Schizophrenia in an attempt to force me to mutilate my Genitalia), I would like to remind those in Portugal behaving like primates and engaging in a Mars versus Venus banana quest, namely DJ's and Psychiatrists leading humanity astray, might want to remember the quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/) also includes [**Intersex People**](https://en.wikipedia.org/wiki/Hermaphrodite) ;)
 
 I don't need your **"Trowel and Plumb line"**, [**I'll use my 2 Fingers ✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
 
