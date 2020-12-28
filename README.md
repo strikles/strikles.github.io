@@ -185,24 +185,44 @@ To the care of Ilya and Emilia Kabakov,
 
 Dear Ilya and Emilia,
 
-I write regarding the art piece "How to meet an Angel" installed at the Mentrum Emergency Psychiatry Clinic in Eerste Constantijn Huygensstraat 
+I write regarding the art piece "How to meet an Angel" installed at the 
+Mentrum Emergency Psychiatry Clinic in Eerste Constantijn Huygensstraat 
 ```
+
 <p align="center" width="100%">
     <a href="https://nl.wikipedia.org/wiki/How_to_meet_an_angel">
         <img src="img/1200px-Eerste_Constantijn_Huygenstraat_foto_2.jpg" width="33%">
     </a>
 </p>
+
 ```
-Cybertorture is recognized by the United Nations under A/HRC/43/49 and is used in grotesque rituals of social stratification (by law enforcement and others recruited for the purpose) to exact extrajudicial trials and sentences as an interactive spectacle encouraging participation, mongering tensions and hatred by preying on cognitive biases.
+Cybertorture is recognized by the United Nations under A/HRC/43/49 and is used in grotesque rituals of social stratification 
+(by law enforcement and others recruited for the purpose) to exact extrajudicial trials and sentences as an interactive spectacle 
+encouraging participation, mongering tensions and hatred by preying on cognitive biases.
 
-Those who exact the extrajudicial sentences resort to directing violence towards women, parents, creating drug addicts with synthetic pain and forcing acts of self-harm for entertainment, whilst attempting to portray themselves as Artists of human degradation, social stratification and self-harm, with grotesque preludes of vibrotactile and sonic payloads of "kisses" and setting synthetic pain, articulating tongue and jaw of the subject under torture, cyber sodomy, intercourse sabotage in males (via involuntary perineum contractions resorting to forced vibrotactile sensations using a feather) and vibrotactile genital abuse in females (possibly resulting in Stockholm's Syndrome) as being standard in our society!
+Those who exact the extrajudicial sentences resort to directing violence towards women, parents, creating drug addicts with synthetic pain 
+and forcing acts of self-harm for entertainment, whilst attempting to portray themselves as Artists of human degradation, 
+social stratification and self-harm, with grotesque preludes of vibrotactile and sonic payloads of "kisses" and setting synthetic pain, 
+articulating tongue and jaw of the subject under torture, cyber sodomy, intercourse sabotage in males 
+(via involuntary perineum contractions resorting to forced vibrotactile sensations using a feather) 
+and vibrotactile genital abuse in females (possibly resulting in Stockholm's Syndrome) as being standard in our society!
 
-The procedure is hidden under a veil of medical malpractice via psychiatric fraud (violating every principle in the code of ethics set by the World Psychiatry Association), false therapy in the form of forced conventional pharmacotherapy (with an associated high risk of suicide) when it could be used to provide therapeutic payloads via the same medium, raising feelings of paranoia towards remote healthcare, neural engineering and electroceuticals where the risk of suicide would be severely mitigated!
+The procedure is hidden under a veil of medical malpractice via psychiatric fraud 
+(violating every principle in the code of ethics set by the World Psychiatry Association), 
+false therapy in the form of forced conventional pharmacotherapy (with an associated high risk of suicide) 
+when it could be used to provide therapeutic payloads via the same medium, 
+raising feelings of paranoia towards remote healthcare, neural engineering 
+and electroceuticals where the risk of suicide would be severely mitigated!
 
-Since Cybertorture paired with Psychiatric Fraud and False therapy has been used for quite some time now to stratify society and several people complained about the installation of such an art piece at an emergency psychiatric institution that deals with individuals at risk of committing acts of self-harm and Wim Brands committed suicide, may I humbly request the name of the statue "How to meet an Angel" to be renamed to something that doesn't make it seem like suicide is a recipe to meet Angels ?
+Since Cybertorture paired with Psychiatric Fraud and False therapy has been used for quite some time now to stratify society 
+and several people complained about the installation of such an art piece at an emergency psychiatric institution 
+that deals with individuals at risk of committing acts of self-harm and Wim Brands committed suicide, 
+may I humbly request the name of the statue "How to meet an Angel" to be renamed 
+to something that doesn't make it seem like suicide is a recipe to meet Angels ?
 
 My sincere apologies for the request and Happy Christmas!
 ```
+
 ## [Diagnostic and Statistical Manual of Mental Disorders](https://en.wikipedia.org/wiki/Diagnostic_and_Statistical_Manual_of_Mental_Disorders)
 
 The Diagnostic and Statistical Manual of Mental Disorders, Fifth Edition (DSM-5) is the 2013 update to the Diagnostic and Statistical Manual of Mental Disorders, the taxonomic and diagnostic tool published by the American Psychiatric Association (APA). In the United States, the DSM serves as the principal authority for psychiatric diagnoses. Treatment recommendations, as well as payment by health care providers, are often determined by DSM classifications, so the appearance of a new version has practical importance. The DSM-5 is the first DSM to use an Arabic numeral instead of a Roman numeral in its title, as well as the first "living document" version of a DSM.
