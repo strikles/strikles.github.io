@@ -629,7 +629,23 @@ The cybertorture medium used to direct violence towards women could be used to h
     </a>
 </p>
 
-#### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment has been aggravated by Former Colégio Militar Students and Portuguese Law Enforcement Officers Tito Eurico Miranda Fernandes, Pedro Miguel Grilo, Luis Nazareth Carvalho Figueira (acting in criminal association with others such as Jasper Kums, Gonçalo Carvalho, Gonçalo Bandeira Duarte, João Leiria and Tapada Crew employees, Carla Maria Marinho Rodrigues, Nuno Correia and respective social groups, along with several others) in the presence of my elderly mother jeopardizing her mental and physical well being as a sentence to both of us for not leaving Colégio Militar at age 14!
+#### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment has been aggravated by Former Colégio Militar Students who worked for the security staff of the President of the Portuguese Republic like:
+
+0. Tito Eurico Miranda Fernandes @PSP and Luis Nazareth Carvalho Figueira @PSP
+
+Other Portuguese Law Enforcement Officers like:
+
+0. Pedro Miguel Grilo @PSP
+
+These individuals act in criminal association with several others such as:
+
+0. Jasper Kums (my former employeer @EenvoudAgency) who attempted to turn me into a stalker!
+0. Gonçalo Carvalho (my former colleague at @Quby) who attempted to drive me insane by insinuating he was having sex with Queen Maxima of the Netherlands over synthetic telepathy as I was sexually abused remotely!
+0. Gonçalo Bandeira Duarte, Tiago Jorge Roque, João Leiria and @TapadaCrew employees!
+0. Carla Maria Marinho Rodrigues (who seems determined to force me to stab myself as revenge for insinuating she was a cocaine addict) and Nuno Correia (who was my mothers neighbor at the 12th floor and for whom I worked for 3 day at Merkkurio Digital)
+0. Individuals associated to the former owners of ["Água pela Barba" next to Jardim do Adamastor at Rua do Almada, Lisboa](https://goo.gl/maps/S5dwABC3DVC2Zsjv9) some of which were recruited and sent to the Netherlands and involved their social groups, along with several others.
+
+<u>These intensify this treatment in the presence of my elderly mother jeopardizing her mental and physical well being as a sentence to both of us for not leaving Colégio Militar at age 14 after performing Faith Trials over synthetic telepathy and attempting to portrait me as a Pedo to force me out of school!</u>
 
 <div align="center">
       <a href="https://en.wikipedia.org/wiki/Doubting_Thomas">
