@@ -208,8 +208,9 @@ whilst attempting to portray themselves as Artists of human degradation,
 social stratification and self-harm, with grotesque preludes 
 of vibrotactile and sonic payloads of "kisses" and setting synthetic pain, 
 articulating tongue and jaw of the subject under torture, cyber sodomy, 
-intercourse sabotage in males (via involuntary perineum contractions resorting to forced vibrotactile sensations using a feather) 
-and vibrotactile genital abuse in females (possibly resulting in Stockholm's Syndrome) as being standard in our society!
+intercourse sabotage in males (via involuntary perineum contractions resorting to forced using a feather) 
+and vibrotactile genital abuse in females (possibly resulting in Stockholm's Syndrome) 
+as being standard in our society!
 
 The procedure is hidden under a veil of medical malpractice via psychiatric fraud 
 (violating every principle in the code of ethics set by the World Psychiatry Association), 
