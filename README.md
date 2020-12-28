@@ -629,7 +629,7 @@ The cybertorture medium used to direct violence towards women could be used to h
     </a>
 </p>
 
-#### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment has been aggravated by Portuguese Law Enforcement Officers (acting in criminal association with others) in the presence of my elderly mother jeopardizing her mental and physical well being as a sentence to both of us!
+#### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment has been aggravated by Former Colégio Militar Students and Portuguese Law Enforcement Officers Tito Eurico Miranda Fernandes, Pedro Miguel Grilo, Luis Nazareth Carvalho Figueira (acting in criminal association with others such as Jasper Kums, Gonçalo Carvalho, Gonçalo Bandeira Duarte, João Leiria and Tapada Crew employees, Carla Maria Marinho Rodrigues, Nuno Correia and respective social groups, along with several others) in the presence of my elderly mother jeopardizing her mental and physical well being as a sentence to both of us for not leaving Colégio Militar at age 14!
 
 <div align="center">
       <a href="https://en.wikipedia.org/wiki/Doubting_Thomas">
