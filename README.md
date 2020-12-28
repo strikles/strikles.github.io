@@ -361,7 +361,6 @@ These neurotransmitters are known to be larger compared to the molecule neurotra
 0. Insulin
 0. Glucagon
 
-
 #### Difference between Hormones and Neurotransmitters
 Organ System
 Hormones are produced by the endocrine system while neurotransmitters are produced by the nervous system. The adrenals, pancreas, kidneys, gonads, thyroid, and other ductless glands secrete hormones while neurotransmitters are released from the terminal end buttons of neurons.
@@ -423,6 +422,13 @@ Both the sympathetic and parasympathetic nerve fibers are present in all viscera
 The somatic and autonomic nervous systems have salient anatomic and structural differences that give rise to different functions. Somatic nerves predominantly come from the spinal cord and are composed of motor neurons that travel to the skeletal muscle. It releases acetylcholine, which stimulates the voluntary contraction of skeletal muscles. Its function is controlled by central nervous system structures such as the motor cortex, basal ganglia, cerebellum, brainstem and the spinal cord. On the other hand, autonomic nerves come from both the spinal cord and the brain that travels to various internal organs, smooth muscles, glands and blood vessels. It is comprised of a two-neuron chain with a preganglionic area that releases acetylcholine, and a post-ganglionic area that releases acetylcholine for parasympathetic terminals and norepinephrine for sympathetic terminals. Neurotransmitter release allows involuntary control of visceral organs by stimulation or inhibition. This is regulated by central nervous system structures such as the prefrontal cortex, hypothalamus, medulla and spinal cord.
 
 ## [Neural Engineering :)](https://en.wikipedia.org/wiki/Neural_engineering)
+
+<p align="center" width="100%">
+    <a href="img/human-square460x460_0.jpeg">
+        <img src="img/human-square460x460_0.jpeg">
+    </a>
+</p>
+
 Neural engineering (also known as neuroengineering) is a discipline within biomedical engineering that uses engineering techniques to understand, repair, replace, or enhance neural systems. Neural engineers are uniquely qualified to solve design problems at the interface of living neural tissue and non-living constructs  (Hetling, 2008).
 
 #### Fundamentals
