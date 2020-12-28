@@ -36,9 +36,11 @@ To those who enforce [Extrajudicial Sentences](https://en.wikipedia.org/wiki/Ext
 
 I will not allow [Collaborationists](https://en.wikipedia.org/wiki/Collaborationism) to turn me into a synthetic [**Anders Behring Breivik**](https://en.wikipedia.org/wiki/Anders_Behring_Breivik) via [Cyber Torture](https://www.undocs.org/A/HRC/43/49) under the cover of Psychiatric Fraud (via Conventional Pharamcotherapy with a [Inherently High Suicide Risk](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5085732/)) in Silence, when [**Electroceuticals**](https://www.sciencedirect.com/science/article/pii/S0019483217308131) paired with drafting [Neurolaw related legislation](https://en.wikipedia.org/wiki/Neurolaw), and promoting awareness of [Neuro Rights and Mental Freedom](https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies) would reduce that risk to near 0.
 
-Also it may be a good idea for you to remember [**Queen Christina of Sweden**](https://en.wikipedia.org/wiki/Christina,_Queen_of_Sweden), the [**Extinct Order of the Amaranth**](https://en.wikipedia.org/wiki/Order_of_the_Amaranth) and the Quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/). I don't need your **"Trowel and Plumb line"**, [I'll use my 2 Fingers **✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
+For those in Portugal who behave like primates and engage in a Mars versus Venus mentality, leading humanity astray, the quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/) also includes [Hemaphrodites](https://en.wikipedia.org/wiki/Hermaphrodite).
 
-*And for those in Portugal who behave like primates and engage in a Mars versus Venus mentality, leading humanity astray, the quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/) also includes [Hemaphrodites](https://en.wikipedia.org/wiki/Hermaphrodite) ;)*
+It may be a good idea for you to remember [**Queen Christina of Sweden**](https://en.wikipedia.org/wiki/Christina,_Queen_of_Sweden), the [**Extinct Order of the Amaranth**](https://en.wikipedia.org/wiki/Order_of_the_Amaranth) and the [**Quest for Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/).
+
+I don't need your **"Trowel and Plumb line"**, [I'll use my 2 Fingers **✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
 
 ## Cybertorture as a [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) 
 
