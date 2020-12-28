@@ -19,7 +19,6 @@ In 2004 José Saramago published his novel [**Seeing**](https://en.wikipedia.org
     </a>
 </p>
 
-
 ## TLDR - [**_Quod Nihil Scitur_**](https://plato.stanford.edu/entries/francisco-sanches/)
 
 <!--
@@ -40,7 +39,7 @@ It may be a good idea for you to remember [**Queen Christina of Sweden**](https:
 
 Whilst I am pretty happy with my **Very Male Gender**, and am NOT Gender Dysphoric in any way as former students from Colégio Militar (Largo da Luz, Portugal) attempted to insinuate, going as far as resorting to Remote Vibrotactile Genital Torture, Cyber Sodomy and forcing a misdiagnosis of Paranoid Schizophrenia in an attempt to force acts of self-harm), I would like to remind those in Portugal behaving like primates and engaging in a Mars versus Venus banana quest, namely DJ's and Psychiatrists leading humanity astray, and others worldwide, the quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/) also includes [**Intersex People**](https://en.wikipedia.org/wiki/Hermaphrodite) ;)
 
-I don't need your **"Trowel and Plumb line"**, [**I'll use my 2 Fingers ✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
+I don't need your **"Trowel and Plumb line"**, [**I've taken vows of cellibacy and I'll use my 2 Fingers instead ✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
 
 ## Cybertorture as a [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) 
 
