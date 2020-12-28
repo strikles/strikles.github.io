@@ -178,6 +178,12 @@ See the European Court of Human Rights Thematic Report - [Health-related issues 
 
 **_Psychiatrists who behave like this violating the [WPA Code of Ethics](https://www.wpanet.org/policies) seem to have more psychopathological issues than the patients they pretend to treat and remind me of South Park character Dr. William Janus - Season 15, Episode 6 - [City Sushy](https://www.southparkstudios.com/episodes/dhi2tb/south-park-city-sushi-season-15-ep-6)_**
 
+<p align="center" width="100%">
+    <a href="https://nl.wikipedia.org/wiki/How_to_meet_an_angel">
+        <img src="img/1200px-Eerste_Constantijn_Huygenstraat_foto_2.jpg" width="33%">
+    </a>
+</p>
+
 ## [Diagnostic and Statistical Manual of Mental Disorders](https://en.wikipedia.org/wiki/Diagnostic_and_Statistical_Manual_of_Mental_Disorders)
 
 The Diagnostic and Statistical Manual of Mental Disorders, Fifth Edition (DSM-5) is the 2013 update to the Diagnostic and Statistical Manual of Mental Disorders, the taxonomic and diagnostic tool published by the American Psychiatric Association (APA). In the United States, the DSM serves as the principal authority for psychiatric diagnoses. Treatment recommendations, as well as payment by health care providers, are often determined by DSM classifications, so the appearance of a new version has practical importance. The DSM-5 is the first DSM to use an Arabic numeral instead of a Roman numeral in its title, as well as the first "living document" version of a DSM.
@@ -223,7 +229,6 @@ I don't want to teach, I want to learn. I've never been good at teaching, nor di
 
 <!--
 ## Neuroanatomy
-## The Endocrine system
 -->
 
 ## [Difference Between Endocrine System and Nervous System](http://www.differencebetween.net/science/health/difference-between-endocrine-system-and-nervous-system/)
@@ -511,6 +516,12 @@ The Research Network on Law and Neuroscience, supported by the John D. and Cathe
 0. investigating in adolescents the relationship between brain development and cognitive capacities
 0. assessing how best to draw inferences about individuals from group-based neuroscientific data
 
+<p align="center" width="100%">
+    <a href="https://www.lawneuro.org/">
+        <img src="img/Colloquium-on-Law-and-Neuroscience-Poster.png" width="33%">
+    </a>
+</p>
+
 Neuroscience and neurolaw have found practical use cases in the Netherlands:
 
 0. [Neuroscientific evidence and criminal responsibility in the Netherlands](https://pure.uvt.nl/ws/portalfiles/portal/1411050/Koops_Neuroscience_and_Criminal_Responsibility_120222_potsprint_immediately.pdf)
@@ -532,8 +543,8 @@ Social stratification by directing violence towards women and my own parents res
 Perhaps it may be a good idea to have the Police set the right example and stop themselves from engaging in acts of Police brutality by creating a cultural movement via diffusion to set us away from these mediocre standards so the general population can simultaneously feel safer and accept the higher standards about to be set by neurolaw via bringing neuroscience and machine learning to the field of [neurolaw](https://en.wikipedia.org/wiki/Neurolaw) for the purpose of [presenting evidence for legal proceedings](https://en.wikipedia.org/wiki/Evidence_(law)).
 
 <p align="center" width="100%">
-    <a href="https://www.lawneuro.org/internationalneurolaw.php">
-        <img src="img/t_neurolaw.png">
+    <a href="img/0623-Bloom-jumbo.jpg">
+        <img src="img/0623-Bloom-jumbo.jpg">
     </a>
 </p>
 
