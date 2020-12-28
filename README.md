@@ -641,7 +641,7 @@ These individuals act in criminal association with several others such as:
 
 0. Jasper Kums (my former employeer @EenvoudAgency) who attempted to turn me into a stalker!
 0. Gonçalo Carvalho (my former colleague at @Quby) who attempted to drive me insane by insinuating he was having sex with Queen Maxima of the Netherlands over synthetic telepathy as I was sexually abused remotely!
-0. Gonçalo Bandeira Duarte, Tiago Jorge Roque, João Leiria and @TapadaCrew employees!
+0. Gonçalo Bandeira Duarte, Tiago Jorge Roque, João Leiria (and TapadaCrew employees @WorldCrewEvents who have ties to Colégio Militar)
 0. Carla Maria Marinho Rodrigues (who seems determined to force me to mutilate myself as revenge for insinuating she was a cocaine addict) and Nuno Correia (who acts in criminal association with his mother who is a nurse and my mothers neighbor at the 12th floor. I worked for Nuno for 3 day at Merkkurio Digital)
 0. Individuals associated to the former owners of ["Água pela Barba" next to Jardim do Adamastor at Rua do Almada, Lisboa](https://goo.gl/maps/S5dwABC3DVC2Zsjv9) some of which were recruited and sent to the Netherlands (like Jessica owner of the mobile phone +31 684166784) and involved their social groups.
 
