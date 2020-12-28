@@ -469,8 +469,8 @@ The somatic and autonomic nervous systems have salient anatomic and structural d
 ## [Neural Engineering :)](https://en.wikipedia.org/wiki/Neural_engineering)
 
 <p align="center" width="100%">
-    <a href="img/human-square460x460_0.jpeg">
-        <img src="img/human-square460x460_0.jpeg">
+    <a href="img/mel_dendrites.jpg">
+        <img src="img/mel_dendrites.jpg">
     </a>
 </p>
 
