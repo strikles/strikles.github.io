@@ -142,7 +142,7 @@ Grotesque examples:
 
 <p align="center" width="100%">
     <a href="https://www.wpanet.org/policies">
-        <img src="img/png-clipart-american-journal-of-psychiatry-world-psychiatric-association-mental-health-organization-health-text-trademark.png">
+        <img src="img/wpa.jpeg">
     </a>
 </p>
 
@@ -486,6 +486,7 @@ Messages that the body uses to influence thoughts, senses, movements, and surviv
 Engineers employ quantitative tools that can be used for understanding and interacting with complex neural systems. Methods of studying and generating chemical, electrical, magnetic, and optical signals responsible for extracellular field potentials and synaptic transmission in neural tissue aid researchers in the modulation of neural system activity (Babb et al. 2008). To understand properties of neural system activity, engineers use signal processing techniques and computational modeling (Eliasmith & Anderson 2003). To process these signals, neural engineers must translate the voltages across neural membranes into corresponding code, a process known as neural coding. Neural coding studies on how the brain encodes simple commands in the form of central pattern generators (CPGs), movement vectors, the cerebellar internal model, and somatotopic maps to understand movement and sensory phenomena. Decoding of these signals in the realm of neuroscience is the process by which neurons understand the voltages that have been transmitted to them. Transformations involve the mechanisms that signals of a certain form get interpreted and then translated into another form. Engineers look to mathematically model these transformations (Eliasmith & Anderson 2003). There are a variety of methods being used to record these voltage signals. These can be intracellular or extracellular. Extracellular methods involve single-unit recordings, extracellular field potentials, and amperometry; more recently, multielectrode arrays have been used to record and mimic signals.
 
 [Neural Recording and Modulation Technologies](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6707077/)
+
 **_Ritchie Chen, Andres Canales, and Polina Anikeeva_**
 
 #### Abstract
@@ -595,7 +596,7 @@ Perhaps it may be a good idea to have the Police set the right example and stop 
 
 <p align="center" width="100%">
     <a href="img/0623-Bloom-jumbo.jpg">
-        <img src="img/0623-Bloom-jumbo.jpg">
+        <img src="img/0623-Bloom-jumbo.jpg" width="33%">
     </a>
 </p>
 
@@ -628,8 +629,7 @@ The cybertorture medium used to direct violence towards women could be used to h
     </a>
 </p>
 
-#### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment is aggravated in the presence of my elderly mother jeopardizing her mental and physical well being as a sentence to both of us for her decision not to allow me to be coherced out of Colégio Militar (largo da Luz, Portugal) at age 14 since I had very good grades!
-
+#### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment has been aggravated by Portuguese Law Enforcement Officers (acting in criminal association with others) in the presence of my elderly mother jeopardizing her mental and physical well being as a sentence to both of us!
 
 <div align="center">
       <a href="https://en.wikipedia.org/wiki/Doubting_Thomas">
