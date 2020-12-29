@@ -606,10 +606,10 @@ The cybertorture medium used to direct violence towards women could be used to h
     </a>
 </p>
 
-#### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment has been aggravated by Former [Colégio Militar](https://www.colegiomilitar.pt/) Students. Some worked for the security staff of the President of the Portuguese Republic and engaged in a Megalomaniac plot since I was 14 years old to exact an extrajudicial sentence of intercourse sabotage with involuntary perineum contractions, directing violence towards women and my parents. This has been pilled upon with a perpetual sentence of cognitive impairment misdiagnosed as paranoid schizophrenic as a coverup under constant vibrotactile genital torture and cyber Sodomy to force genital self-mutilation!
+#### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment has been aggravated by Former [Colégio Militar](https://www.colegiomilitar.pt/) Students. Some worked for the security staff of the President of the Portuguese Republic and engaged in a Megalomaniac plot since I was 14 years old to exact an extrajudicial sentence of intercourse sabotage with involuntary perineum contractions, directing violence towards women and my parents. This has been pilled upon with a perpetual sentence of cognitive impairment misdiagnosed as paranoid schizophrenic as a coverup under constant vibrotactile genital torture and cyber Sodomy to force self-harm!
 
 0. **Luis Nazareth Carvalho Figueira** (17 at Colégio Militar) @PSP who planned this since I was a teenager.
-0. [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized) (15 at Colégio Militar) @PSP - Tito was recruited by Luis Figueira and worked directly for the security staff of the President of the Portuguese Republic making it hard to understand why Europol doesn't take prompt action. Hopefully not to see an encore of the sad spectacle involving [**Jasper Kums**](https://nl.linkedin.com/in/jasperkums) who acted in criminal association with so many others on the 1st January 2017. Tito has been sabotaging prayer and telephone communication with my mother gambling self-harm via incessant vibrotactile payloads delivered to my ears and soft tissues in my head and is surrounded with individuals entertaining themselves by forcing me to feel sodomized to watch me break everything I have!
+0. [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized) (15 at Colégio Militar) @PSP - Tito was recruited by Luis Figueira and worked directly for the security staff of the President of the Portuguese Republic making it hard to understand why Europol doesn't take prompt action. Hopefully not to see an encore of the sad spectacle involving [**Jasper Kums**](https://nl.linkedin.com/in/jasperkums) who acted in criminal association with so many others on the 1st January 2017. Tito has been sabotaging prayer and telephone communication with my mother gambling self-harm via incessant vibrotactile payloads delivered to my ears and soft tissues in my head and is surrounded with individuals entertaining themselves by watching me break the few belongings I have!
 
 Portuguese Law Enforcement Officers like:
 
@@ -636,9 +636,9 @@ The previous Former Colégio Militar students act in criminal association with s
 0. [**Tiago Jorge Roque**](https://www.facebook.com/tiago.j.roque) (Neighbor of Gonçalo Bandeira Duarte)
 0. João Leiria (a former [Tapada Crew](https://www.tapadacrew.com/) employee @WorldCrewEvents. Employees at Tapada Crew have ties to Colégio Militar and neighbors of Gonçalo Bandeira Duarte)
 0. A very large number of individuals associated to the former owners of ["Água pela Barba" next to Jardim do Adamastor at Rua do Almada, Lisboa](https://goo.gl/maps/S5dwABC3DVC2Zsjv9) some of which were recruited and sent to the Netherlands (like Jessica owner of the mobile phone +31 684166784) and involved their social groups (which include a couple consisting of a DJ who goes by the name of Dresh, his influential father who I never met and his girlfriend who may be a psychiatrist).
-0. Carla Maria Marinho Rodrigues (who seems determined to force me to mutilate myself as revenge for insinuating she was a cocaine addict) and Nuno Correia (who acts in criminal association with his mother who is a nurse and my mothers neighbor at the 12th floor. I worked for Nuno for 3 day at Merkkurio Digital and I hope other family members like his father and his brother haven't turned the Justice System in the Netherlands into a Theatrical Circus).
+0. Carla Maria Marinho Rodrigues (who seems determined to force self-harm as revenge for insinuating she was a cocaine addict) and Nuno Correia (who acts in criminal association with his mother who is a nurse and my mothers neighbor at the 12th floor. I worked for Nuno for 3 day at Merkkurio Digital and I hope other family members like his father and his brother haven't turned the Justice System in the Netherlands into a Theatrical Circus).
 
-These individuals enforce a cognitive impairment extrajudicial sentence, direct violence towards others (including women, my parents, police officers, psychiatrists and medical personnel) sabotage everything I do, attempting to force me to hurt myself instead making it impossible to find a job working in the physical vicinity of others, trying to craft numerous psychological traumas and forcing me to live in celibacy and solitude to avoid arguments and violent confrontations, which sadly aids their cause of forcing psychiatric fraud and false therapy in the form of forced conventional pharmacotherapy to stab my gluteus maximus with a needle as a humiliation whilst trying to look like **Artists** at forcing me to hurt myself with amplified and distorted sonic and vibrotactile preludes of grotesque "Kisses" forced upon soft tissues in head and brain mass!
+These individuals enforce a cognitive impairment extrajudicial sentence, direct violence towards others (including women, my parents, police officers, psychiatrists and medical personnel) sabotage everything I do, including maintaining a regular breathing pattern, attempting to force me to hurt myself instead making it impossible to find a job working in the physical vicinity of others, trying to craft numerous psychological traumas and forcing me to live in celibacy and solitude to avoid arguments and violent confrontations, which sadly aids their cause of forcing psychiatric fraud and false therapy in the form of forced conventional pharmacotherapy to stab my gluteus maximus with a needle as a humiliation whilst trying to look like **Artists** at forcing me to hurt myself with amplified and distorted sonic and vibrotactile preludes of grotesque "Kisses" forced upon soft tissues in head and brain mass!
 
 <u>They intensify this treatment in the presence of my elderly mother jeopardizing her mental and physical well being as a sentence to both of us for not leaving Colégio Militar at age 14 after performing Faith Trials over synthetic telepathy and attempting to portrait me as a Pedo to force me out of school!</u>
 
@@ -648,23 +648,22 @@ These individuals enforce a cognitive impairment extrajudicial sentence, direct 
       </a>
 </div>
 
-<!--
 They exact morbid extrajudicial cognitive impairment sentences for entertainment which in my case consist of:
-0. articulating my tongue and jaw to force me to speak in the Portuguese language
-0. forcing me to feel slapped in an attempt to force me to stab myself in the back of the head (cerebellum) every few seconds
-0. attempting to force self-mutilation of my ears every few seconds
+0. articulating my tongue and jaw to force me to utter words in the Portuguese language
+0. forcing me to feel slapped in an attempt to force self-harm delivering noxious payloads to the back of the head (cerebellum) every few seconds
+0. attempting to force self-harm delivering vibrotactile payloads to my ears every few seconds
 0. forcing me to extract teeth via remote control of blood flow and nociception with oscillatory patterns simulating masturbation
 0. dislodging my skull from it's resting place so I can't keep my head straight every few seconds
 0. watching me destroy my private property setting as targets mobile phone and laptop so I can't work or use social media
 0. sensitizing nerve endings to maximize impact and forcing synthetic hyperhidrosis of hands and feet as a social exclusion measure
 0. cybersodomy and synthetic nociception on my anus
-0. vibrotactile genital torture trying to force genital self-mutilation
-0. sabotage of learning experiences
+0. all day vibrotactile genital torture every single day trying to guarantee synthetic psychotic behavior and self-harm
+0. sabotage of all learning experiences
 0. sabotage of multimedia experiences (listening to music or watching TV)
 0. directing violence towards the people around me
-0. trying to force me to spit on supermarket employees during the current SARS-CoV-2 pandemia
+0. trying to force me to spit on supermarket employees during the current SARS-CoV-2 pandemia at the moment of paying
 0. trying to fill my home with fungi forcing me into the shower for relief for long periods with synthetic back pain
--->
+
 
 <!--
 Some of the individuals involved in enforcing the cybertorture extrajudicial sentence who are (or were) associated with Portuguese Law enforcement: 
@@ -748,9 +747,7 @@ Examples of individuals recruited to exact extrajudicial sentences via Cybertort
 > **Multiple complaints were filled with the police, PSP, IGAI and tweets were sent to @FCGulbenkian, @fchampalimaud and @UN from my account @Claudio56185831 in order for the individuals enforcing this extrajudicial Cybertorture sentence to be denounced without anyone putting an end to this morbid spectacle of former colégio militar students and recruited collaborators (like [Gonçalo Bandeira Duarte](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) who conspired to turn me into a drug addict by waking me up in the middle of the night, falsely accused me of being a xenophobe and a homophobe to monger racial hatred and raveled like a happy pig in a pool of excrement when watching a video of an individual twitching on the floor after shooting himself in the head at a police station) trying to look SUAVE and professional at stratifying society by exacting extrajudicial sentences gambling self-harm and directing violence towards others to force psychiatric abuse and false therapy in front of an audience under the false pretense of making me cry and forcing me to return to Portugal to live with my mother!**
 -->
 
-<!--
-#### Luis Nazareth Carvalho Figueira asked me not to approach women in 2016 as those acting in criminal association with [Jasper Kums](https://nl.linkedin.com/in/jasperkums) conspired to turn me into a stalker and violent towards women without much success! As such I've taken vows of cellibacy in order to comply with his request and address the insinuation of my father as master of my romantic life whilst gambling my physical and mental well being to exact psychiatric abuse and false therapy!
--->
+#### Luis Nazareth Carvalho Figueira asked me not to approach women in 2016 as those acting in criminal association with [Jasper Kums](https://nl.linkedin.com/in/jasperkums) conspired to turn me into a stalker and violent towards women without much success! As such I've taken vows of cellibacy in order to comply with his request!
 
 #### Attempts to perpetuate psychiatric fraud and false therapy under a misdiagnosis of **paranoid schizophrenia** as a cover for an illegal sentence of cognitive impairment, forcing me to live out of welfare or attempting to force my return to Portugal will result in seeking [legal action](https://www.macfound.org/networks/research-network-on-law-and-neuroscience/) and asking for [**Refugee Status**](https://www.redcross.org.uk/get-help/get-help-as-a-refugee) :(
 
