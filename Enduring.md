@@ -138,7 +138,7 @@ A stígma is a mark on the skin.
 > Marian apparitions are reported supernatural appearances by Mary, the mother of Jesus
 
 ## [Rubik's Cube](https://en.wikipedia.org/wiki/Missionary)
-![](2000x2800-stellavie-fine-art-print-a-guide-to-solving-cube-puzzles_1390x.png)
+![](img/2000x2800-stellavie-fine-art-print-a-guide-to-solving-cube-puzzles_1390x.png)
 
 ## [Enduring Cybertorture with unilateral disarmament](https://en.wikipedia.org/wiki/Octopussy)
 
