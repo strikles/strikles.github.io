@@ -4,7 +4,7 @@
 0. [A/HRC/RES/13/19 - the role and responsibility of judges, prosecutors and lawyers](https://documents-dds-ny.un.org/doc/UNDOC/GEN/G10/129/70/PDF/G1012970.pdf?OpenElement)
 0. [A/HRC/RES/10/24 - the role and responsibility of medical and other health personnel](https://ap.ohchr.org/documents/E/HRC/resolutions/A_HRC_RES_10_24.pdf)
 
-## [Exile, José Saramago, Religious Offence and Freedom of Speech](https://en.wikipedia.org/wiki/Religious_offense)
+## [José Saramago, Religious Offence and Freedom of Speech](https://en.wikipedia.org/wiki/Religious_offense)
 Nobel Prize winner [**José Saramago**](https://en.wikipedia.org/wiki/Jos%C3%A9_Saramago) went into exile as a symbolic gesture on the Spanish island of Lanzarote in 1992 when the Government of Portugal under Prime Minister [Aníbal Cavaco Silva](https://en.wikipedia.org/wiki/An%C3%ADbal_Cavaco_Silva) ordered the removal of one of his works [**The Ghospel according to Jesus Christ**](https://en.wikipedia.org/wiki/The_Gospel_According_to_Jesus_Christ) from the Aristeion Prize's shortlist, claiming the work was religiously offensive.
 
 Some of these individuals **insinuated** via synthetic telepathy José Saramago exiled himself due to [**cybertorture**](https://www.undocs.org/A/HRC/43/49). 
