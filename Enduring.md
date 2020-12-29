@@ -3,7 +3,7 @@
 
 <p align="center" width="100%">
     <a href="https://en.wikipedia.org/wiki/Isaac_Newton">
-        <img src="img/Sir_Isaac_Newton_(1643-1727).jpg">
+        <img src="img/Sir_Isaac_Newton_(1643-1727).png">
     </a>
 </p>
 
@@ -32,7 +32,7 @@
 
 <p align="center" width="100%">
     <a href="https://www.nature.com/news/history-einstein-was-no-lone-genius-1.18793">
-        <img src="img/grossman_einstein_besso.jpg">
+        <img src="img/grossman_einstein_besso.png">
     </a>
 </p>
 
@@ -40,7 +40,7 @@
 
 <p align="center" width="100%">
     <a href="https://en.wikipedia.org/wiki/Mileva_Mari%C4%87">
-        <img src="img/Mileva_Maric.jpg" width="33%">
+        <img src="img/Mileva_Maric.png" width="33%">
     </a>
 </p>
 
@@ -67,7 +67,7 @@ if we are to engage in such practices there are better candidates:
 
 <p align="center" width="100%">
     <a href="http://www.newtonproject.ox.ac.uk/view/contexts/CNTX00001">
-        <img src="img/Dispersive_Prism_Illustration.jpg" width="33%">
+        <img src="img/Dispersive_Prism_Illustration.png" width="33%">
     </a>
 </p>
 
@@ -87,7 +87,7 @@ if we are to engage in such practices there are better candidates:
 
 <p align="center" width="100%">
     <a href="pioskailemaitre-x404.jpg">
-        <img src="img/pioskailemaitre-x404.jpg">
+        <img src="img/pioskailemaitre-x404.png">
     </a>
 </p>
 
@@ -111,7 +111,7 @@ Carl Friedrich Gauss strongly upheld religious tolerance, believing
 ## How I keep my Faith
 #### [Holy Trinity](https://en.wikipedia.org/wiki/Trinity)
 
-![](Emblem_Trinitarian_Order_Rome.jpg)
+![](Emblem_Trinitarian_Order_Rome.png)
 
 > The Christian doctrine of the Trinity holds that God is one God, but three coeternal and consubstantial persons: the Father, the Son (Jesus Christ), and the Holy Spirit. The three persons are distinct, yet are one "substance, essence or nature" (homoousios). In this context, a "nature" is what one is, whereas a "person" is who one is.
 
@@ -138,12 +138,12 @@ A stígma is a mark on the skin.
 > Marian apparitions are reported supernatural appearances by Mary, the mother of Jesus
 
 ## [Rubik's Cube](https://en.wikipedia.org/wiki/Missionary)
-![](2000x2800-stellavie-fine-art-print-a-guide-to-solving-cube-puzzles_1390x.jpg)
+![](2000x2800-stellavie-fine-art-print-a-guide-to-solving-cube-puzzles_1390x.png)
 
 ## [Enduring Cybertorture with unilateral disarmament](https://en.wikipedia.org/wiki/Octopussy)
 
 <p align="center" width="100%">
     <a href="https://en.wikipedia.org/wiki/Octopussy">
-        <img src="img/IMG_0783.JPG">
+        <img src="img/IMG_0783.png">
     </a>
 </p>
