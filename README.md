@@ -380,7 +380,7 @@ They exact morbid extrajudicial cognitive impairment sentences for entertainment
 
 #### Luis Nazareth Carvalho Figueira asked me not to approach women in 2016 as those acting in criminal association with [Jasper Kums](https://nl.linkedin.com/in/jasperkums) conspired to turn me into a stalker and violent towards women without much success! As such I've taken vows of cellibacy in order to comply with his request!
 
-#### Attempts to perpetuate psychiatric fraud and false therapy under a misdiagnosis of **paranoid schizophrenia** as a cover for an illegal sentence of cognitive impairment, forcing me to live out of welfare or attempting to force my return to Portugal will result in seeking [legal action](https://www.macfound.org/networks/research-network-on-law-and-neuroscience/) leaving the European Union Dictate and asking for [**Refugee Status**](https://www.redcross.org.uk/get-help/get-help-as-a-refugee) :(
+#### Attempts to perpetuate psychiatric fraud and false therapy under a misdiagnosis of **paranoid schizophrenia** as a cover for an illegal sentence of cognitive impairment, forcing me to live out of welfare or attempting to force my return to Portugal will result in seeking [legal action](https://www.macfound.org/networks/research-network-on-law-and-neuroscience/) leaving the European Union Synthetic Mental Illness Psychiatric Dictate and asking for [**Refugee Status**](https://www.redcross.org.uk/get-help/get-help-as-a-refugee) :(
 
 <p align="center" width="100%">
     <a href="https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies">
