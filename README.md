@@ -649,6 +649,7 @@ These individuals enforce a cognitive impairment extrajudicial sentence, direct 
 </div>
 
 They exact morbid extrajudicial cognitive impairment sentences for entertainment which in my case consist of:
+
 0. articulating my tongue and jaw to force me to utter words in the Portuguese language
 0. forcing me to feel slapped in an attempt to force self-harm delivering noxious payloads to the back of the head (cerebellum) every few seconds
 0. attempting to force self-harm delivering vibrotactile payloads to my ears every few seconds
