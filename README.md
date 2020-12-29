@@ -638,15 +638,17 @@ The previous Former Colégio Militar students act in criminal association with s
 0. A very large number of individuals associated to the former owners of ["Água pela Barba" next to Jardim do Adamastor at Rua do Almada, Lisboa](https://goo.gl/maps/S5dwABC3DVC2Zsjv9) some of which were recruited and sent to the Netherlands (like Jessica owner of the mobile phone +31 684166784) and involved their social groups (which include a couple consisting of a DJ who goes by the name of Dresh, his influential father who I never met and his girlfriend who may be a psychiatrist).
 0. Carla Maria Marinho Rodrigues (who seems determined to force self-harm as revenge for insinuating she was a cocaine addict) and Nuno Correia (who acts in criminal association with his mother who is a nurse and my mothers neighbor at the 12th floor. I worked for Nuno for 3 day at Merkkurio Digital and I hope other family members like his father and his brother haven't turned the Justice System in the Netherlands into a Theatrical Circus).
 
-These individuals enforce a cognitive impairment extrajudicial sentence, direct violence towards others (including women, my parents, police officers, psychiatrists and medical personnel) sabotage everything I do, including maintaining a regular breathing pattern, attempting to force me to hurt myself instead making it impossible to find a job working in the physical vicinity of others, trying to craft numerous psychological traumas and forcing me to live in celibacy and solitude to avoid arguments and violent confrontations, which sadly aids their cause of forcing psychiatric fraud and false therapy in the form of forced conventional pharmacotherapy to stab my gluteus maximus with a needle as a humiliation whilst trying to look like **Artists** at forcing me to hurt myself with amplified and distorted sonic and vibrotactile preludes of grotesque "Kisses" forced upon soft tissues in head and brain mass!
+These individuals enforce a cognitive impairment extrajudicial sentence, direct violence towards others (including women, my parents, police officers, psychiatrists and medical personnel) sabotage everything I do, including maintaining a regular breathing pattern, attempting to force self-harm instead, making it impossible to find a job working in the physical vicinity of others, trying to craft numerous psychological traumas and forcing me to live in celibacy and solitude to avoid arguments and violent confrontations. 
 
-<u>They intensify this treatment in the presence of my elderly mother jeopardizing her mental and physical well being as a sentence to both of us for not leaving Colégio Militar at age 14 after performing Faith Trials over synthetic telepathy and attempting to portrait me as a Pedo to force me out of school!</u>
+This sadly aids their cause of forcing psychiatric fraud and false therapy in the form of forced conventional pharmacotherapy to stab my gluteus maximus with a needle as a humiliation whilst trying to look like **Artists** at forcing me to hurt myself with amplified and distorted sonic and vibrotactile preludes of grotesque "Kisses" forced upon soft tissues in head and brain mass!
+
 
 <div align="center">
       <a href="https://en.wikipedia.org/wiki/Doubting_Thomas">
          <img src="img/Caravaggio_-_The_Incredulity_of_Saint_Thomas.jpg" style="width:100%;">
       </a>
 </div>
+
 
 They exact morbid extrajudicial cognitive impairment sentences for entertainment which in my case consist of:
 
@@ -747,6 +749,8 @@ Examples of individuals recruited to exact extrajudicial sentences via Cybertort
 <!--
 > **Multiple complaints were filled with the police, PSP, IGAI and tweets were sent to @FCGulbenkian, @fchampalimaud and @UN from my account @Claudio56185831 in order for the individuals enforcing this extrajudicial Cybertorture sentence to be denounced without anyone putting an end to this morbid spectacle of former colégio militar students and recruited collaborators (like [Gonçalo Bandeira Duarte](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) who conspired to turn me into a drug addict by waking me up in the middle of the night, falsely accused me of being a xenophobe and a homophobe to monger racial hatred and raveled like a happy pig in a pool of excrement when watching a video of an individual twitching on the floor after shooting himself in the head at a police station) trying to look SUAVE and professional at stratifying society by exacting extrajudicial sentences gambling self-harm and directing violence towards others to force psychiatric abuse and false therapy in front of an audience under the false pretense of making me cry and forcing me to return to Portugal to live with my mother!**
 -->
+
+<u>They intensify this treatment in the presence of my elderly mother jeopardizing her mental and physical well being as a sentence to both of us for not leaving Colégio Militar at age 14 after performing Faith Trials over synthetic telepathy and attempting to portrait me as a Pedo to force me out of school!</u>
 
 #### Luis Nazareth Carvalho Figueira asked me not to approach women in 2016 as those acting in criminal association with [Jasper Kums](https://nl.linkedin.com/in/jasperkums) conspired to turn me into a stalker and violent towards women without much success! As such I've taken vows of cellibacy in order to comply with his request!
 
