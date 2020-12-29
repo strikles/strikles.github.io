@@ -623,8 +623,11 @@ Urologist:
 
 0. [Frederico Ferronha](https://pt.linkedin.com/in/frederico-ferronha-36183b29/en-us?trk=people-guest_people_search-card)
 
+Owner of [Bar Capela](https://www.facebook.com/acapelabar/):
 
-These Former Colégio Militar students act in criminal association with several others such as:
+0. Pedro Silva - acts like so many others under the moniker **"No Love Lost"**. If you say that there is no love lost between two people or groups or there is little love lost between them, you mean that they do not like each other at all. There was no love lost between the two men.
+
+The previous Former Colégio Militar students act in criminal association with several others such as:
 
 0. [**Jasper Kums**](https://nl.linkedin.com/in/jasperkums) (my former employeer @EenvoudAgency) who attempted to turn me into a stalker!
 0. [**Gonçalo Carvalho**](https://nl.linkedin.com/in/gccarvalho/de) (my former colleague at @Quby and possibly related to [ISCPSI](http://www.iscpsi.pt/) where Pedro Miguel Grilo also used to work) who attempted to drive me insane by insinuating he was having sex with Queen Maxima of the Netherlands over synthetic telepathy as I was sexually abused remotely!
