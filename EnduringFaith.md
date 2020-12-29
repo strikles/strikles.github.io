@@ -1,5 +1,3 @@
-## Enduring Cognitive Impairment with Faith
-
 ## [What Makes Others Question their Faith](https://en.wikipedia.org/wiki/Carl_Friedrich_Gauss#Religious_views)
 
 Mixing [**Religion**](https://en.wikipedia.org/wiki/Religion) and [**Numerology**](https://en.wikipedia.org/wiki/Numerology) makes some people lose faith:
@@ -87,14 +85,3 @@ A stígma is a mark on the skin.
 
 #### [Marian apparitions](https://en.wikipedia.org/wiki/List_of_Marian_apparitions)
 > Marian apparitions are reported supernatural appearances by Mary, the mother of Jesus
-
-## [Rubik's Cube](https://en.wikipedia.org/wiki/Missionary)
-![](img/2000x2800-stellavie-fine-art-print-a-guide-to-solving-cube-puzzles_1390x.png)
-
-## [Enduring Cybertorture with unilateral disarmament](https://en.wikipedia.org/wiki/Octopussy)
-
-<p align="center" width="100%">
-    <a href="https://en.wikipedia.org/wiki/Octopussy">
-        <img src="img/IMG_0783.png">
-    </a>
-</p>
