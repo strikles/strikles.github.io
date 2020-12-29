@@ -180,7 +180,7 @@ See the European Court of Human Rights Thematic Report - [Health-related issues 
 
 This was followed by a videocall interview at the Mentrum Emergency Psychiatry Clinic in Eerste Constantijn Huygensstraat to talk to an independent psychiatrist and assert if I was a danger to myself where I found a statue named "How to meet an Angel" by Ilya and Emilia Kabakov was installed!
 
-<div class="border">
+<div class="bg-warning">
 To the care of Ilya and Emilia Kabakov,
 
 Dear Ilya and Emilia,
@@ -194,7 +194,7 @@ I write regarding the art piece "How to meet an Angel" installed at the Mentrum 
     </a>
 </p>
 
-<div class="border">
+<div class="bg-warning">
 Cybertorture is recognized by the United Nations under A/HRC/43/49 and is used in grotesque rituals of social stratification (by law enforcement and others recruited for the purpose) to exact extrajudicial trials and sentences as an interactive spectacle encouraging participation, mongering tensions and hatred by preying on cognitive biases.
 
 Those who exact the extrajudicial sentences resort to directing violence towards women, parents, creating drug addicts with synthetic pain and forcing acts of self-harm for entertainment, whilst attempting to portray themselves as Artists of human degradation, social stratification and self-harm, with grotesque preludes of vibrotactile and sonic payloads of "kisses" and setting synthetic pain, articulating tongue and jaw of the subject under torture, cyber sodomy, intercourse sabotage in males (via involuntary perineum contractions resorting to forced using a feather) and vibrotactile genital abuse in females (possibly resulting in Stockholm's Syndrome) as being standard in our society!
