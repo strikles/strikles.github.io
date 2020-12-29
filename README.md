@@ -623,9 +623,10 @@ Urologist:
 
 0. [Frederico Ferronha](https://pt.linkedin.com/in/frederico-ferronha-36183b29/en-us?trk=people-guest_people_search-card)
 
+<!--
 Owner of [Bar Capela](https://www.facebook.com/acapelabar/):
-
-0. Pedro Silva - like so many other Portuguese DJ's in Lisbon who engage in Cybertorture (like Marcelo Lima) acts under the moniker **"No Love Lost"**. **_If you say that there is no love lost between two people or groups or there is little love lost between them, you mean that they do not like each other at all. There was no love lost between the two men._**
+0. Pedro Silva - like so many other Portuguese DJ's in Lisbon who engage in Cybertorture (like Marcelo Lima) acts under the moniker **"No Love Lost"**. **_If you say that there is no love lost between two people or groups or there is little love lost between them, you mean that they do not like each other at all. There was no love lost between the two men._**. Given that no one knows him or would pay to see him act I hope this statement will not trigger threat assessment systems like MOSAIC!
+-->
 
 The previous Former Colégio Militar students act in criminal association with several others such as:
 
