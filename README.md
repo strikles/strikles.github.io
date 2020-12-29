@@ -629,21 +629,34 @@ The cybertorture medium used to direct violence towards women could be used to h
     </a>
 </p>
 
-#### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment has been aggravated by Former [Colégio Militar](https://www.colegiomilitar.pt/) Students who worked for the security staff of the President of the Portuguese Republic like:
+#### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment has been aggravated by Former [Colégio Militar](https://www.colegiomilitar.pt/) Students. Some worked for the security staff of the President of the Portuguese Republic and conspired since I was 14 years old to exact a extrajudicial sentence of intercourse sabotage with involuntary perineum contractions, directing violence towards women and my parents to exact a perpetual sentence of cognitive impairment misdiagnosed as paranoid schizophrenia as a coverup under constant vibrotactile genital torture and cyber Sodomy to force genital self-castration and portray me as a pedo!
 
-0. Luis Nazareth Carvalho Figueira (17 at CM) @PSP who planned this since I was a teenager and recruited [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized) (15 at CM) @PSP
+0. Luis Nazareth Carvalho Figueira (17 at Colégio Militar) @PSP who planned this since I was a teenager and recruited [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized) (15 at Colégio Militar) @PSP
 
-Other Portuguese Law Enforcement Officers like:
+Tito has been sabotaging prayer and telephone communication with my mother gambling self-harm via incessant vibrotactile payloads delivered to my ears and soft tissues in my head!
 
-0. [**Pedro Miguel Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) (427 at CM) @PSP and João Pinheiro (277 at CM) former @PSP
+Portuguese Law Enforcement Officers like:
 
-These individuals act in criminal association with several others such as:
+0. [**Pedro Miguel Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) (427 at Colégio Militar) @PSP and João Pinheiro (277 at Colégio Militar) former @PSP
+
+Former United Nations peace keeping officer:
+
+0. [**Paulo Varanda**](https://pt.linkedin.com/in/paulo-jorge-vieira-varanda-69681284/en-us?trk=people-guest_people_search-card)
+
+Urologist:
+
+0. [Frederico Ferronha](https://pt.linkedin.com/in/frederico-ferronha-36183b29/en-us?trk=people-guest_people_search-card)
+
+
+These Former Colégio Militar students act in criminal association with several others such as:
 
 0. [**Jasper Kums**](https://nl.linkedin.com/in/jasperkums) (my former employeer @EenvoudAgency) who attempted to turn me into a stalker!
 0. [**Gonçalo Carvalho**](https://nl.linkedin.com/in/gccarvalho/de) (my former colleague at @Quby and possibly related to [ISCPSI](http://www.iscpsi.pt/) where Pedro Miguel Grilo also used to work) who attempted to drive me insane by insinuating he was having sex with Queen Maxima of the Netherlands over synthetic telepathy as I was sexually abused remotely!
-0. [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) (a known criminal who conspired to get me to mimick his xenophobic, homophobic and misogynistic behavior), [**Tiago Jorge Roque**](https://www.facebook.com/tiago.j.roque) (his neighbor), João Leiria (a former [Tapada Crew](https://www.tapadacrew.com/) employee @WorldCrewEvents. Employees at Tapada Crew have ties to Colégio Militar and neighbors of Gonçalo Bandeira Duarte)
-0. Carla Maria Marinho Rodrigues (who seems determined to force me to mutilate myself as revenge for insinuating she was a cocaine addict) and Nuno Correia (who acts in criminal association with his mother who is a nurse and my mothers neighbor at the 12th floor. I worked for Nuno for 3 day at Merkkurio Digital and I hope other family members like his father and his brother haven't turned the Justice System in the Netherlands into a Theatric Circus).
+0. [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) (a known criminal who conspired to get me to mimick his xenophobic, homophobic and misogynistic behavior)
+0. [**Tiago Jorge Roque**](https://www.facebook.com/tiago.j.roque) (Neighbor of Gonçalo Bandeira Duarte)
+0. João Leiria (a former [Tapada Crew](https://www.tapadacrew.com/) employee @WorldCrewEvents. Employees at Tapada Crew have ties to Colégio Militar and neighbors of Gonçalo Bandeira Duarte)
 0. A very large number of individuals associated to the former owners of ["Água pela Barba" next to Jardim do Adamastor at Rua do Almada, Lisboa](https://goo.gl/maps/S5dwABC3DVC2Zsjv9) some of which were recruited and sent to the Netherlands (like Jessica owner of the mobile phone +31 684166784) and involved their social groups (which include a couple consisting of a DJ who goes by the name of Dresh, his influential father who I never met and his girlfriend who may be a psychiatrist).
+0. Carla Maria Marinho Rodrigues (who seems determined to force me to mutilate myself as revenge for insinuating she was a cocaine addict) and Nuno Correia (who acts in criminal association with his mother who is a nurse and my mothers neighbor at the 12th floor. I worked for Nuno for 3 day at Merkkurio Digital and I hope other family members like his father and his brother haven't turned the Justice System in the Netherlands into a Theatric Circus).
 
 These individuals enforce a cognitive impairment extrajudicial sentence, direct violence towards others (including women, my parents, police officers, psychiatrists and medical personnel) sabotage everything I do, attempting to force me to hurt myself instead making it impossible to find a job working in the physical vicinity of others, trying to craft numerous psychological traumas and forcing me to live in cellibacy and solitude to avoid arguments and violent confrontatioins, which sadly aids their cause of forcing psychiatric fraud and false therapy in the form of forced conventional pharamcotherapy to stab my gluteus maximus with a needle as a humiliation whilst trying to look like **artists** at forcing me to hurt myself with amplified and distorted sonic and vibrotactile preludes of grotesque "Kisses" forced upon soft tissues in head and brain mass!
 
