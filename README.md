@@ -41,7 +41,8 @@ I am very 🏳️‍🌈 Happy 🏳️‍🌈 with my **Very Male Gender**, and 
 
 I've vowed to fight inequality as part of my Catholic Confirmation Rite and to do something for society upon leaving Colégio Militar. As such I have taken vows of cellibacy to make sure we will achieve our objective! Also I don't need your **"Trowel and Plumb line"**, [**I'll use my 2 Fingers instead ✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
 
-0. [Enduring Cybertorture :)](EnduringCybertorture.md)
+## [Enduring Cybertorture :)](EnduringCybertorture.md)
+
 0. [Enduring Cybertorture with Faith](EnduringCybertortureWithFaith.md)
 0. [Enduring Cybertorture with Scientists](EnduringCybertortureWithScientists.md)
 0. [Enduring Cybertorture with Neuroanatomy](Neuroanatomy.md)
