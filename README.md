@@ -321,7 +321,8 @@ The cybertorture medium used to direct violence towards women could be used to h
 
 Portuguese Law Enforcement Officers like:
 
-0. [**Pedro Miguel Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) (427 at Colégio Militar) @PSP and João Pinheiro (277 at Colégio Militar) former @PSP
+0. [**Pedro Miguel Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) (427 at Colégio Militar) @PSP - instructed me to jump out of a rooftop in the Netherlands and out of the window in front of my mother whilst remotely gaping my anus as my mother complained she urinated herself in the middle of the night from watching me hit myself in the head!
+0. João Pinheiro (277 at Colégio Militar) **exonerated** @PSP officer
 
 Former United Nations peacekeeping officer:
 
