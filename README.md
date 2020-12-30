@@ -41,6 +41,11 @@ I am very 🏳️‍🌈 Happy 🏳️‍🌈 with my **Very Male Gender**, and 
 
 I've vowed to fight inequality as part of my Catholic Confirmation Rite and to do something for society upon leaving Colégio Militar. As such I have taken vows of cellibacy to make sure we will achieve our objective! Also I don't need your **"Trowel and Plumb line"**, [**I'll use my 2 Fingers instead ✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
 
+[Enduring Cybertorture :)](EnduringCybertorture.md)
+[Enduring Cybertorture with Faith](EnduringCybertortureWithFaith.md)
+[Enduring Cybertorture with Scientists](EnduringCybertortureWithScientists.md)
+[Enduring Cybertorture with Neuroanatomy](Neuroanatomy.md)
+
 ## Cybertorture as a [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) 
 
 Many of us look only at our own interests and the interests of those close to us. A so-called "Me, Me, Me" mentality which results lack of [Ethical](https://en.wikipedia.org/wiki/Ethics) and [Moral](https://en.wikipedia.org/wiki/Morality) values resulting in criminal behavior which could be mitigated in a [Transparent Society](https://en.wikipedia.org/wiki/The_Transparent_Society). Whilst I am an adept of [Transparent Behavior](https://en.wikipedia.org/wiki/Transparency_(behavior)), I also like "fair game" and I highly value my [personal autonomy](https://en.wikipedia.org/wiki/Autonomy) which should not be put in jeopardy by being forced into unemployment and welfare via cybertorture extrajudicial sentences so that I can't support myself and my "laptop" and "mobile phone" being set as targets to be destroyed under states of extreme exhaustion via sleep deprivation by sadists out of control who draw pleasure from generating synthetic psychotic behavior and acts of self-harm.
