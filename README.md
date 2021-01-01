@@ -5,7 +5,47 @@
 0. [A/HRC/RES/10/24 - the role and responsibility of medical and other health personnel](https://ap.ohchr.org/documents/E/HRC/resolutions/A_HRC_RES_10_24.pdf)
 
 For decades the United Nations have tried to raise awareness to address issues that affect our society whilst being mostly ignored by governments worldwide. 
-With the advent of [A/HRC/43/49 recognizing Cybertorture](https://www.undocs.org/A/HRC/43/49), combined with progress in the field of Neuroscience and Neurolaw and raised interest in [neuromodulation](https://en.wikipedia.org/wiki/Neuromodulation_(medicine)) as a therapeutic procedure, along with the public disclosure of scientific content such as [neuromodulation of attention](pdf/1-s2.0-S0896627318300114-main.pdf) mechanisms, an opportunity has been created for someone to turn [arrows into flowers](https://core.ac.uk/download/pdf/60546298.pdf) and address some of those issues, raising awareness to the fight for [Neurorights and Mental freedom](https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies), allowing individuals to [regulate their own states of mind](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3579548/) via self-rewarding payloads in a quasi-continuous [closed feedback loop](https://en.wikipedia.org/wiki/Control_theory#Open-loop_and_closed-loop_(feedback)_control), using the same cybertorture medium used to direct violence towards others, nurture addiction, turn women into [stockholm syndrome](https://en.wikipedia.org/wiki/Stockholm_syndrome) victims and exact extrajudicial trials and sentences in a circus format whilst hiding under a veil of psychiatric fraud, medical malpractice and forced pharmacotherapy, corrupting crucial data used by well intentioned institutions like the World Health Organization and slowing progress!
+With the advent of [A/HRC/43/49 recognizing Cybertorture](https://www.undocs.org/A/HRC/43/49), combined with progress in the field of Neuroscience and Neurolaw and raised interest in [neuromodulation](https://en.wikipedia.org/wiki/Neuromodulation_(medicine)) as a therapeutic procedure, along with the public disclosure of scientific content such as [neuromodulation of attention](pdf/1-s2.0-S0896627318300114-main.pdf) mechanisms, an opportunity has been created for someone to turn [arrows into flowers](https://core.ac.uk/download/pdf/60546298.pdf) and address some of those issues, raising awareness to the fight for [Neurorights and Mental freedom](https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies), allowing individuals to [regulate their own states of mind](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3579548/) via self-rewarding payloads in a quasi-continuous [closed feedback loop](https://en.wikipedia.org/wiki/Control_theory#Open-loop_and_closed-loop_(feedback)_control), using the same cybertorture medium used to direct violence towards others, nurture addiction, turn women into [stockholm syndrome](https://en.wikipedia.org/wiki/Stockholm_syndrome) victims and exact extrajudicial trials and sentences in a circus format whilst hiding under a veil of psychiatric fraud, medical malpractice and forced pharmacotherapy, corrupting crucial data used by well intentioned institutions like the World Health Organization, stratifying society slowing progress!
+
+## Cybertorture as a [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) 
+
+Many of us look only at our own interests and the interests of those close to us. A so-called "Me, Me, Me" mentality which results lack of [Ethical](https://en.wikipedia.org/wiki/Ethics) and [Moral](https://en.wikipedia.org/wiki/Morality) values resulting in criminal behavior which could be mitigated in a [Transparent Society](https://en.wikipedia.org/wiki/The_Transparent_Society). Whilst I am an adept of [Transparent Behavior](https://en.wikipedia.org/wiki/Transparency_(behavior)), I also like "fair game" and I highly value my [personal autonomy](https://en.wikipedia.org/wiki/Autonomy) which should not be put in jeopardy by being forced into unemployment and welfare via cybertorture extrajudicial sentences so that I can't support myself and my "laptop" and "mobile phone" being set as targets to be destroyed under states of extreme exhaustion via sleep deprivation by sadists out of control who draw pleasure from generating synthetic psychotic behavior and acts of self-harm.
+
+Lack of a Neurolaw framework and lack of a law enforcement entity dedicated to enforce Neurolaw and preserve Neurorights and Mental Freedom (particularly at home and at work) gives rise to social stratification by resorting to cybertorture to distort [self-determination](https://en.wikipedia.org/wiki/Self-determination) and corrupt data of threat assessment systems like [MOSAIC](https://en.wikipedia.org/wiki/MOSAIC_threat_assessment_systems)!
+
+This obviously results in paranoid behavior regarding [Global Surveillance](https://en.wikipedia.org/wiki/Global_surveillance), [Right to Privacy](https://en.wikipedia.org/wiki/Right_to_privacy), [Physician Patient Privilege](https://en.wikipedia.org/wiki/Physician%E2%80%93patient_privilege), [Secret Ballot](https://en.wikipedia.org/wiki/Secret_ballot), [Intimacy and Privacy](https://en.wikipedia.org/wiki/Privacy#Intimacy), [Right to be let alone](https://en.wikipedia.org/wiki/Privacy#Right_to_be_let_alone), and results in lack of trust in:
+
+0. Law enforcement
+0. The Judicial System
+0. Elected Government Officials
+0. Psychiatrists
+0. The Electoral Process
+0. One another :(
+
+Why would I bother spending money on public transport to vote when my every intention can be scrutinized as a victim of cybertorture ?
+Since voting is compulsory, suffrage over synthetic telepathy would solve the problem of lack of participation in the electoral process. All that is required is trust :)
+
+<p align="center" width="100%">
+    <a href="https://en.wikipedia.org/wiki/Ut_queant_laxis">
+        <img src="img/Ut_Queant_Laxis_MT.png">
+    </a>
+</p>
+
+Most of these issues would not exist if we followed the [Open Source Model](https://en.wikipedia.org/wiki/Open-source_model) or at the very least, the rules were made Clear and Transparent. Obscurity and deception games culminate in [Solitude](https://en.wikipedia.org/wiki/Solitude), delusional quests for [Anonymity](https://en.wikipedia.org/wiki/Anonymity), [Aggression and Violent Behavior](https://en.wikipedia.org/wiki/Aggression_and_Violent_Behavior) and acts of [Terrorism](https://en.wikipedia.org/wiki/Terrorism).
+
+Social honeypots for individuals with psychopathological issues filled with hate and anger, unwilling to "forgive and forget" based on the the movie [V for Vendetta](https://en.wikipedia.org/wiki/V_for_Vendetta_(film)) such as [The Anonymous Group](https://en.wikipedia.org/wiki/Anonymous_(group)) and their [Guy Fawkes](https://en.wikipedia.org/wiki/Guy_Fawkes) masks make matters worse. Whilst I like the renaissance look of the mask, the fact of the matter is Guy Fawkes was a terrorist and an idiot and so was [Robert Catesby](https://en.wikipedia.org/wiki/Robert_Catesby) ring leader of the failed [Gunpowder Plot](https://en.wikipedia.org/wiki/Gunpowder_Plot)!
+
+<p align="center" width="100%">
+    <a href="https://www.compoundchem.com/2014/01/22/the-chemistry-of-an-onion/">
+        <img src="img/onion_heart.png">
+    </a>
+</p>
+
+**_I don't deal with terrorists either, so why not wear a Jeremy Bentham mask instead to protest peacefully for what should be common sense via justice reform ?_**
+
+[Mi](https://en.wikipedia.org/wiki/Solf%C3%A8ge) is a beautiful musical note but unless if you are composing something like [4'33''](https://en.wikipedia.org/wiki/4%E2%80%B233%E2%80%B3) **WE** need more musical notes to create a [𝄞 melody 𝄢](https://www.youtube.com/watch?v=80D3vkuLaxs).
+
+#### [Part of my cybertorture story >>>](#mentis-morbum-tuum-)
 
 ## [José Saramago, Religious Offence and Freedom of Speech](https://en.wikipedia.org/wiki/Religious_offense)
 Nobel Prize winner [**José Saramago**](https://en.wikipedia.org/wiki/Jos%C3%A9_Saramago) went into exile as a symbolic gesture on the Spanish island of Lanzarote in 1992 when the Government of Portugal under Prime Minister [Aníbal Cavaco Silva](https://en.wikipedia.org/wiki/An%C3%ADbal_Cavaco_Silva) ordered the removal of one of his works [**The Ghospel according to Jesus Christ**](https://en.wikipedia.org/wiki/The_Gospel_According_to_Jesus_Christ) from the Aristeion Prize's shortlist, claiming the work was religiously offensive.
@@ -49,46 +89,6 @@ I've vowed to fight inequality as part of my Catholic Confirmation Rite and to d
 0. [Enduring Cybertorture with Faith](EnduringCybertortureWithFaith.md)
 0. [Enduring Cybertorture with Scientists](EnduringCybertortureWithScientists.md)
 0. [Enduring Cybertorture with Neuroanatomy](Neuroanatomy.md)
-
-## Cybertorture as a [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) 
-
-Many of us look only at our own interests and the interests of those close to us. A so-called "Me, Me, Me" mentality which results lack of [Ethical](https://en.wikipedia.org/wiki/Ethics) and [Moral](https://en.wikipedia.org/wiki/Morality) values resulting in criminal behavior which could be mitigated in a [Transparent Society](https://en.wikipedia.org/wiki/The_Transparent_Society). Whilst I am an adept of [Transparent Behavior](https://en.wikipedia.org/wiki/Transparency_(behavior)), I also like "fair game" and I highly value my [personal autonomy](https://en.wikipedia.org/wiki/Autonomy) which should not be put in jeopardy by being forced into unemployment and welfare via cybertorture extrajudicial sentences so that I can't support myself and my "laptop" and "mobile phone" being set as targets to be destroyed under states of extreme exhaustion via sleep deprivation by sadists out of control who draw pleasure from generating synthetic psychotic behavior and acts of self-harm.
-
-Lack of a Neurolaw framework and lack of a law enforcement entity dedicated to enforce Neurolaw and preserve Neurorights and Mental Freedom (particularly at home and at work) gives rise to social stratification by resorting to cybertorture to distort [self-determination](https://en.wikipedia.org/wiki/Self-determination) and corrupt data of threat assessment systems like [MOSAIC](https://en.wikipedia.org/wiki/MOSAIC_threat_assessment_systems)!
-
-This obviously results in paranoid behavior regarding [Global Surveillance](https://en.wikipedia.org/wiki/Global_surveillance), [Right to Privacy](https://en.wikipedia.org/wiki/Right_to_privacy), [Physician Patient Privilege](https://en.wikipedia.org/wiki/Physician%E2%80%93patient_privilege), [Secret Ballot](https://en.wikipedia.org/wiki/Secret_ballot), [Intimacy and Privacy](https://en.wikipedia.org/wiki/Privacy#Intimacy), [Right to be let alone](https://en.wikipedia.org/wiki/Privacy#Right_to_be_let_alone), and results in lack of trust in:
-
-0. Law enforcement
-0. The Judicial System
-0. Elected Government Officials
-0. Psychiatrists
-0. The Electoral Process
-0. One another :(
-
-Why would I bother spending money on public transport to vote when my every intention can be scrutinized as a victim of cybertorture ?
-Since voting is compulsory, suffrage over synthetic telepathy would solve the problem of lack of participation in the electoral process. All that is required is trust :)
-
-<p align="center" width="100%">
-    <a href="https://en.wikipedia.org/wiki/Ut_queant_laxis">
-        <img src="img/Ut_Queant_Laxis_MT.png">
-    </a>
-</p>
-
-Most of these issues would not exist if we followed the [Open Source Model](https://en.wikipedia.org/wiki/Open-source_model) or at the very least, the rules were made Clear and Transparent. Obscurity and deception games culminate in [Solitude](https://en.wikipedia.org/wiki/Solitude), delusional quests for [Anonymity](https://en.wikipedia.org/wiki/Anonymity), [Aggression and Violent Behavior](https://en.wikipedia.org/wiki/Aggression_and_Violent_Behavior) and acts of [Terrorism](https://en.wikipedia.org/wiki/Terrorism).
-
-Social honeypots for individuals with psychopathological issues filled with hate and anger, unwilling to "forgive and forget" based on the the movie [V for Vendetta](https://en.wikipedia.org/wiki/V_for_Vendetta_(film)) such as [The Anonymous Group](https://en.wikipedia.org/wiki/Anonymous_(group)) and their [Guy Fawkes](https://en.wikipedia.org/wiki/Guy_Fawkes) masks make matters worse. Whilst I like the renaissance look of the mask, the fact of the matter is Guy Fawkes was a terrorist and an idiot and so was [Robert Catesby](https://en.wikipedia.org/wiki/Robert_Catesby) ring leader of the failed [Gunpowder Plot](https://en.wikipedia.org/wiki/Gunpowder_Plot)!
-
-<p align="center" width="100%">
-    <a href="https://www.compoundchem.com/2014/01/22/the-chemistry-of-an-onion/">
-        <img src="img/onion_heart.png">
-    </a>
-</p>
-
-**_I don't deal with terrorists either, so why not wear a Jeremy Bentham mask instead to protest peacefully for what should be common sense via justice reform ?_**
-
-[Mi](https://en.wikipedia.org/wiki/Solf%C3%A8ge) is a beautiful musical note but unless if you are composing something like [4'33''](https://en.wikipedia.org/wiki/4%E2%80%B233%E2%80%B3) **WE** need more musical notes to create a [𝄞 melody 𝄢](https://www.youtube.com/watch?v=80D3vkuLaxs).
-
-#### [Part of my cybertorture story >>>](#mentis-morbum-tuum-)
 
 ## Police Brutality, [Extrajudicial punishment](https://en.wikipedia.org/wiki/Extrajudicial_punishment) and Cybertorture
 
