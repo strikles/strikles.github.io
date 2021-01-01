@@ -4,10 +4,10 @@
 0. [A/HRC/RES/13/19 - the role and responsibility of judges, prosecutors and lawyers](https://documents-dds-ny.un.org/doc/UNDOC/GEN/G10/129/70/PDF/G1012970.pdf?OpenElement)
 0. [A/HRC/RES/10/24 - the role and responsibility of medical and other health personnel](https://ap.ohchr.org/documents/E/HRC/resolutions/A_HRC_RES_10_24.pdf)
 
+## Cybertorture as a [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) 
+
 For decades the United Nations have tried to raise awareness to address issues that affect our society whilst being mostly ignored by governments worldwide. 
 With the advent of [A/HRC/43/49 recognizing Cybertorture](https://www.undocs.org/A/HRC/43/49), combined with progress in the field of Neuroscience and Neurolaw and raised interest in [neuromodulation](https://en.wikipedia.org/wiki/Neuromodulation_(medicine)) as a therapeutic procedure, along with the public disclosure of scientific content such as [neuromodulation of attention](pdf/1-s2.0-S0896627318300114-main.pdf) mechanisms, an opportunity has been created for someone to turn [arrows into flowers](https://core.ac.uk/download/pdf/60546298.pdf) and address some of those issues, raising awareness to the fight for [Neurorights and Mental freedom](https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies), allowing individuals to [regulate their own states of mind](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3579548/) via self-rewarding payloads in a quasi-continuous [closed feedback loop](https://en.wikipedia.org/wiki/Control_theory#Open-loop_and_closed-loop_(feedback)_control), using the same cybertorture medium used to direct violence towards others, nurture addiction, turn women into [stockholm syndrome](https://en.wikipedia.org/wiki/Stockholm_syndrome) victims and exact extrajudicial trials and sentences in a circus format whilst hiding under a veil of psychiatric fraud, medical malpractice and forced pharmacotherapy, corrupting crucial data used by well intentioned institutions like the World Health Organization, stratifying society slowing progress!
-
-## Cybertorture as a [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) 
 
 Many of us look only at our own interests and the interests of those close to us. A so-called "Me, Me, Me" mentality which results lack of [Ethical](https://en.wikipedia.org/wiki/Ethics) and [Moral](https://en.wikipedia.org/wiki/Morality) values resulting in criminal behavior which could be mitigated in a [Transparent Society](https://en.wikipedia.org/wiki/The_Transparent_Society). Whilst I am an adept of [Transparent Behavior](https://en.wikipedia.org/wiki/Transparency_(behavior)), I also like "fair game" and I highly value my [personal autonomy](https://en.wikipedia.org/wiki/Autonomy) which should not be put in jeopardy by being forced into unemployment and welfare via cybertorture extrajudicial sentences so that I can't support myself and my "laptop" and "mobile phone" being set as targets to be destroyed under states of extreme exhaustion via sleep deprivation by sadists out of control who draw pleasure from generating synthetic psychotic behavior and acts of self-harm.
 
@@ -61,34 +61,6 @@ In 2004 José Saramago published his novel [**Seeing**](https://en.wikipedia.org
         <img src="img/IMG_0564.png">
     </a>
 </p>
-
-## TLDR - [**_Quod Nihil Scitur_**](https://plato.stanford.edu/entries/francisco-sanches/)
-
-<!--
-For the past 3 decades you preyed upon families by resorting to [Cognitive Biases](https://en.wikipedia.org/wiki/List_of_cognitive_biases) and lack of a [Neurolaw](https://en.wikipedia.org/wiki/Neurolaw) framework, [Neurorights and Mental Freedom awareness](https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies) by attempting to portrait individuals as being "Insane" resorting to distorting **_Faith Trials over Synthetic Telepathy_** and presenting that content to others as **_proof_** the SUT believes he is either **God** or the **Devil**, attempting to portrait SUTs as being Pedos, Xenophobes, Homophobes, Misogynistic, and attempt to **Direct Violence towards Parents and Women**, 
--->
-
-To those who enforce [Extrajudicial Sentences](https://en.wikipedia.org/wiki/Extrajudicial_punishment) of [Cyber Torture](https://www.undocs.org/A/HRC/43/49) (setting Cyber Sodomy, [Cognitive Impairment](https://en.wikipedia.org/wiki/Cognitive_deficit) and Synthetic Pain as a standard in our society) paired with [**Psychiatric Abuse**](https://en.wikipedia.org/wiki/Political_abuse_of_psychiatry) (violating every principle in the [**World Psychiatric Association Code of Ethics**](https://www.wpanet.org/policies)) towards **Stratifying Society** and making a circus out of the Judicial System, articulating Tongues and Jaws of SUT's for entertainment, Directing violence towards Parents and Women to Corrupt Data of **Threat Assessment Systems** like [**MOSAIC**](https://en.wikipedia.org/wiki/MOSAIC_threat_assessment_systems) and performing **Flawed Science** on mixed bags of data consisting of patients with **Real Psychopathological Illness** mixed with **Victims of Cybertorture**, **Delaying Progress** and **Raising Paranoia** to important therapeutical methods that could help make the world a better place such as [**Electroceuticals**](https://www.sciencedirect.com/science/article/pii/S0019483217308131)...
-
-<p align="center" width="100%">
-    <a href="https://www.youtube.com/watch?v=yGQgdE50QA4">
-        <img src="img/IMG_0469.JPG">
-    </a>
-</p>
-
-I will not allow [Collaborationists](https://en.wikipedia.org/wiki/Collaborationism) who conspired to attempt to portrait me as a Pedo, a Stalker or a synthetic [**Anders Behring Breivik**](https://en.wikipedia.org/wiki/Anders_Behring_Breivik) via [Cyber Torture](https://www.undocs.org/A/HRC/43/49), exacting extrajudicial trials and sentences for xenophobia, homophobia, misogyny and making fools out of men by **Sabotaging Intercourse** with involuntary perineum contractions, **enslaving women via vibrotactile genital abuse** resulting in [**Stockholm Syndrome**](https://en.wikipedia.org/wiki/Stockholm_syndrome) to hide under the cover of Psychiatric Fraud by crafting misdiagnosis for various psychopathologies (pilled upon with false therapy in the form of Conventional Pharamcotherapy with a [Inherently High Suicide Risk](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5085732/)), when [**Electroceuticals**](https://www.sciencedirect.com/science/article/pii/S0019483217308131) paired with drafting [Neurolaw related legislation](https://en.wikipedia.org/wiki/Neurolaw), and promoting awareness of [Neuro Rights and Mental Freedom](https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies) would reduce that risk to near 0.
-
-**I will not be Silenced** and it may be a good idea for you to remember [**Queen Christina of Sweden**](https://en.wikipedia.org/wiki/Christina,_Queen_of_Sweden), the [**Extinct Order of the Amaranth**](https://en.wikipedia.org/wiki/Order_of_the_Amaranth), the relationship between [Freemasonry and women](https://en.wikipedia.org/wiki/Freemasonry_and_women) and the [**Quest for Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/).
-
-I am very 🏳️‍🌈 Happy 🏳️‍🌈 with my **Very Male Gender**, and am NOT Gender Dysphoric in any way as some attempted to insinuate, going as far as resorting to Remote Vibrotactile Genital Torture, Cyber Sodomy and forcing a misdiagnosis of Paranoid Schizophrenia in an attempt to force acts of self-harm), and I would like to remind those in Portugal behaving like primates and engaging in a Mars versus Venus banana quest, namely DJ's and Psychiatrists leading humanity astray, and others worldwide, the quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/) also includes [**Intersex People**](https://en.wikipedia.org/wiki/Hermaphrodite) ;)
-
-I've vowed to fight inequality as part of my Catholic Confirmation Rite and to do something for society upon leaving Colégio Militar. As such I have taken vows of cellibacy to make sure we will achieve our objective! Also I don't need your **"Trowel and Plumb line"**, [**I'll use my 2 Fingers instead ✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
-
-## [Enduring Cybertorture :)](EnduringCybertorture.md)
-
-0. [Enduring Cybertorture with Faith](EnduringCybertortureWithFaith.md)
-0. [Enduring Cybertorture with Scientists](EnduringCybertortureWithScientists.md)
-0. [Enduring Cybertorture with Neuroanatomy](Neuroanatomy.md)
 
 ## Police Brutality, [Extrajudicial punishment](https://en.wikipedia.org/wiki/Extrajudicial_punishment) and Cybertorture
 
@@ -314,6 +286,34 @@ The cybertorture medium used to direct violence towards women could be used to h
 ❤ ❥ 
 ♥
 -->
+
+## [**_Quod Nihil Scitur_**](https://plato.stanford.edu/entries/francisco-sanches/)
+
+<!--
+For the past 3 decades you preyed upon families by resorting to [Cognitive Biases](https://en.wikipedia.org/wiki/List_of_cognitive_biases) and lack of a [Neurolaw](https://en.wikipedia.org/wiki/Neurolaw) framework, [Neurorights and Mental Freedom awareness](https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies) by attempting to portrait individuals as being "Insane" resorting to distorting **_Faith Trials over Synthetic Telepathy_** and presenting that content to others as **_proof_** the SUT believes he is either **God** or the **Devil**, attempting to portrait SUTs as being Pedos, Xenophobes, Homophobes, Misogynistic, and attempt to **Direct Violence towards Parents and Women**, 
+-->
+
+To those who enforce [Extrajudicial Sentences](https://en.wikipedia.org/wiki/Extrajudicial_punishment) of [Cyber Torture](https://www.undocs.org/A/HRC/43/49) (setting Cyber Sodomy, [Cognitive Impairment](https://en.wikipedia.org/wiki/Cognitive_deficit) and Synthetic Pain as a standard in our society) paired with [**Psychiatric Abuse**](https://en.wikipedia.org/wiki/Political_abuse_of_psychiatry) (violating every principle in the [**World Psychiatric Association Code of Ethics**](https://www.wpanet.org/policies)) towards **Stratifying Society** and making a circus out of the Judicial System, articulating Tongues and Jaws of SUT's for entertainment, Directing violence towards Parents and Women to Corrupt Data of **Threat Assessment Systems** like [**MOSAIC**](https://en.wikipedia.org/wiki/MOSAIC_threat_assessment_systems) and performing **Flawed Science** on mixed bags of data consisting of patients with **Real Psychopathological Illness** mixed with **Victims of Cybertorture**, **Delaying Progress** and **Raising Paranoia** to important therapeutical methods that could help make the world a better place such as [**Electroceuticals**](https://www.sciencedirect.com/science/article/pii/S0019483217308131)...
+
+<p align="center" width="100%">
+    <a href="https://www.youtube.com/watch?v=yGQgdE50QA4">
+        <img src="img/IMG_0469.JPG">
+    </a>
+</p>
+
+I will not allow [Collaborationists](https://en.wikipedia.org/wiki/Collaborationism) who conspired to attempt to portrait me as a Pedo, a Stalker or a synthetic [**Anders Behring Breivik**](https://en.wikipedia.org/wiki/Anders_Behring_Breivik) via [Cyber Torture](https://www.undocs.org/A/HRC/43/49), exacting extrajudicial trials and sentences for xenophobia, homophobia, misogyny and making fools out of men by **Sabotaging Intercourse** with involuntary perineum contractions, **enslaving women via vibrotactile genital abuse** resulting in [**Stockholm Syndrome**](https://en.wikipedia.org/wiki/Stockholm_syndrome) to hide under the cover of Psychiatric Fraud by crafting misdiagnosis for various psychopathologies (pilled upon with false therapy in the form of Conventional Pharamcotherapy with a [Inherently High Suicide Risk](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5085732/)), when [**Electroceuticals**](https://www.sciencedirect.com/science/article/pii/S0019483217308131) paired with drafting [Neurolaw related legislation](https://en.wikipedia.org/wiki/Neurolaw), and promoting awareness of [Neuro Rights and Mental Freedom](https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies) would reduce that risk to near 0.
+
+**I will not be Silenced** and it may be a good idea for you to remember [**Queen Christina of Sweden**](https://en.wikipedia.org/wiki/Christina,_Queen_of_Sweden), the [**Extinct Order of the Amaranth**](https://en.wikipedia.org/wiki/Order_of_the_Amaranth), the relationship between [Freemasonry and women](https://en.wikipedia.org/wiki/Freemasonry_and_women) and the [**Quest for Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/).
+
+I am very 🏳️‍🌈 Happy 🏳️‍🌈 with my **Very Male Gender**, and am NOT Gender Dysphoric in any way as some attempted to insinuate, going as far as resorting to Remote Vibrotactile Genital Torture, Cyber Sodomy and forcing a misdiagnosis of Paranoid Schizophrenia in an attempt to force acts of self-harm), and I would like to remind those in Portugal behaving like primates and engaging in a Mars versus Venus banana quest, namely DJ's and Psychiatrists leading humanity astray, and others worldwide, the quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/) also includes [**Intersex People**](https://en.wikipedia.org/wiki/Hermaphrodite) ;)
+
+I've vowed to fight inequality as part of my Catholic Confirmation Rite and to do something for society upon leaving Colégio Militar. As such I have taken vows of cellibacy to make sure we will achieve our objective! Also I don't need your **"Trowel and Plumb line"**, [**I'll use my 2 Fingers instead ✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
+
+## [Enduring Cybertorture :)](EnduringCybertorture.md)
+
+0. [Enduring Cybertorture with Faith](EnduringCybertortureWithFaith.md)
+0. [Enduring Cybertorture with Scientists](EnduringCybertortureWithScientists.md)
+0. [Enduring Cybertorture with Neuroanatomy](Neuroanatomy.md)
 
 # Mentis Morbum Tuum 𝄫
 
