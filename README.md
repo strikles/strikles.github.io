@@ -39,15 +39,11 @@ Since voting is compulsory, suffrage over synthetic telepathy would solve the pr
 
 Most of these issues would not exist if we followed the [Open Source Model](https://en.wikipedia.org/wiki/Open-source_model) or at the very least, the rules were made Clear and Transparent. Obscurity and deception games culminate in [Solitude](https://en.wikipedia.org/wiki/Solitude), delusional quests for [Anonymity](https://en.wikipedia.org/wiki/Anonymity), [Aggression and Violent Behavior](https://en.wikipedia.org/wiki/Aggression_and_Violent_Behavior) and acts of [Terrorism](https://en.wikipedia.org/wiki/Terrorism).
 
-Social honeypots for individuals with psychopathological issues filled with hate and anger, unwilling to "forgive and forget" based on the the movie [V for Vendetta](https://en.wikipedia.org/wiki/V_for_Vendetta_(film)) such as [The Anonymous Group](https://en.wikipedia.org/wiki/Anonymous_(group)) and their [Guy Fawkes](https://en.wikipedia.org/wiki/Guy_Fawkes) masks make matters worse. Whilst I like the renaissance look of the mask, the fact of the matter is Guy Fawkes was a terrorist and an idiot and so was [Robert Catesby](https://en.wikipedia.org/wiki/Robert_Catesby) ring leader of the failed [Gunpowder Plot](https://en.wikipedia.org/wiki/Gunpowder_Plot)!
-
 <p align="center" width="100%">
     <a href="https://www.compoundchem.com/2014/01/22/the-chemistry-of-an-onion/">
         <img src="img/onion_heart.png">
     </a>
 </p>
-
-**_I don't deal with terrorists either, so why not wear a Jeremy Bentham mask instead to protest peacefully for what should be common sense via justice reform ?_**
 
 Whilst I am an adept of [Transparent Behavior](https://en.wikipedia.org/wiki/Transparency_(behavior)), I also like "fair game" and I highly value my [personal autonomy](https://en.wikipedia.org/wiki/Autonomy) which should not be put in jeopardy by being forced into unemployment and welfare via cybertorture extrajudicial sentences so that I can't support myself and my "laptop" and "mobile phone" being set as targets to be destroyed under states of extreme exhaustion via sleep deprivation by sadists out of control who draw pleasure from generating synthetic psychotic behavior.
 
@@ -283,6 +279,8 @@ The cybertorture medium used to direct violence towards women could be used to h
         <img src="img/mw-860.png" width="33%">
     </a>
 </p>
+
+Social honeypots for individuals with psychopathological issues filled with hate and anger, unwilling to "forgive and forget" based on the the movie [V for Vendetta](https://en.wikipedia.org/wiki/V_for_Vendetta_(film)) such as [The Anonymous Group](https://en.wikipedia.org/wiki/Anonymous_(group)) and their [Guy Fawkes](https://en.wikipedia.org/wiki/Guy_Fawkes) masks make matters worse. Whilst I like the renaissance look of the mask, the fact of the matter is Guy Fawkes was a terrorist and an idiot and so was [Robert Catesby](https://en.wikipedia.org/wiki/Robert_Catesby) ring leader of the failed [Gunpowder Plot](https://en.wikipedia.org/wiki/Gunpowder_Plot)!
 
 <!--
 𝆒 𝆓 
