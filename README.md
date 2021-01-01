@@ -12,8 +12,8 @@ For decades the United Nations have tried to raise awareness to address issues t
 With the advent of [A/HRC/43/49 recognizing Cybertorture](https://www.undocs.org/A/HRC/43/49), combined with progress in the field of Neuroscience and Neurolaw and raised interest in [neuromodulation](https://en.wikipedia.org/wiki/Neuromodulation_(medicine)) as a therapeutic procedure, along with the public disclosure of scientific content such as [neuromodulation of attention](pdf/1-s2.0-S0896627318300114-main.pdf) mechanisms, an opportunity has been created for someone to turn [arrows into flowers](https://core.ac.uk/download/pdf/60546298.pdf) by allowing individuals to [regulate their own states of mind](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3579548/) via self-rewarding payloads in a quasi-continuous [closed feedback loop](https://en.wikipedia.org/wiki/Control_theory#Open-loop_and_closed-loop_(feedback)_control), using the same medium used for cybertorture and hence eradicating narcotraffic!
 
 <p align="center" width="100%">
-    <a href="http://img.youtube.com/vi/lQXgVM30mIY/0.jpg">
-        <img src="https://www.youtube.com/watch?v=lQXgVM30mIY">
+    <a href="https://www.youtube.com/watch?v=lQXgVM30mIY">
+        <img src="http://img.youtube.com/vi/lQXgVM30mIY/0.jpg">
     </a>
 </p>
 
