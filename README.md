@@ -338,8 +338,8 @@ The previous Former Colégio Militar students act in criminal association with s
 0. [**Tiago Jorge Roque**](https://www.facebook.com/tiago.j.roque) (Neighbor of Gonçalo Bandeira Duarte)
 0. João Leiria (a former [Tapada Crew](https://www.tapadacrew.com/) employee @WorldCrewEvents. Employees at Tapada Crew have ties to Colégio Militar and neighbors of Gonçalo Bandeira Duarte)
 0. A very large number of individuals associated to the former owners of ["Água pela Barba" next to Jardim do Adamastor at Rua do Almada, Lisboa](https://goo.gl/maps/S5dwABC3DVC2Zsjv9) some of which were recruited and sent to the Netherlands (like Jessica owner of the mobile phone +31 684166784) and involved their social groups (which include a couple consisting of a DJ who goes by the name of Dresh, his influential father who I never met and his girlfriend who may be a psychiatrist).
-0. Carla Maria Marinho Rodrigues (who seems determined to force self-harm as revenge for insinuating she was a cocaine addict) and Nuno Correia. 
-0. [Nuno Correia](https://pt.linkedin.com/in/nuno-correia-383a86154) (may be acting in criminal association with his mother, a nurse who claimed Portuguese doctors were better than Doctors in the Netherlands in a possible attempt to manipulate me to live with my mother in Portugal. His mother is my mothers neighbor at the 12th floor). I worked for Nuno for 3 day at Merkkurio Digital and I hope other members of his family (like his father and his brother) haven't turned the Justice System in the Netherlands into a Theatrical Circus.
+0. Carla Maria Marinho Rodrigues - who seems determined to force self-harm as revenge for insinuating she was a cocaine addict) and Nuno Correia. 
+0. [Nuno Correia](https://pt.linkedin.com/in/nuno-correia-383a86154) - may be acting in criminal association with his mother, a nurse who claimed Portuguese doctors were better than Doctors in the Netherlands in a possible attempt to manipulate me to live with my mother in Portugal. His mother is my mothers neighbor at the 12th floor). I worked for Nuno for 3 day at Merkkurio Digital and I hope other members of his family (like his father and his brother) haven't turned the Justice System in the Netherlands into a Theatrical Circus.
 
 These individuals enforce a cognitive impairment extrajudicial sentence, direct violence towards others (including women, my parents, police officers, psychiatrists and medical personnel) sabotage everything I do, including maintaining a regular breathing pattern, attempting to force self-harm instead, making it impossible to find a job working in the physical vicinity of others, trying to craft numerous psychological traumas and forcing me to live in celibacy and solitude to avoid arguments and violent confrontations. 
 
@@ -351,7 +351,6 @@ This sadly aids their cause of forcing psychiatric fraud and false therapy in th
          <img src="img/Caravaggio_-_The_Incredulity_of_Saint_Thomas.jpg" style="width:100%;">
       </a>
 </div>
-
 
 They exact morbid extrajudicial cognitive impairment sentences for entertainment which in my case consist of:
 
@@ -369,7 +368,6 @@ They exact morbid extrajudicial cognitive impairment sentences for entertainment
 0. directing violence towards the people around me
 0. trying to force me to spit on supermarket employees during the current SARS-CoV-2 pandemia at the moment of paying
 0. trying to fill my home with fungi forcing me into the shower for relief for long periods with synthetic back pain
-
 
 #### They intensify this treatment in the presence of my elderly mother jeopardizing her mental and physical well being as a sentence to both of us for not leaving Colégio Militar at age 14 after performing Faith Trials over synthetic telepathy and attempting to portrait me as a Pedo to force me out of school!
 
