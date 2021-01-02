@@ -87,7 +87,7 @@ These guys act as 3 stooges by collaborating in Faith Trials and behaving like [
 
 Other former Colégio Militar students who are/were @PSP Officers:
 
-0. [**Pedro Miguel Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) (427 at Colégio Militar)
+0. [**Pedro Miguel Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) (427 at Colégio Militar) and João Pinheiro (277 at Colégio Militar) and respective families and social groups!
 
 My former neighbor and some former acquaintances:
 
