@@ -52,12 +52,13 @@ Whilst I am an adept of [Transparent Behavior](https://en.wikipedia.org/wiki/Tra
 The notes of this [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) are the [collaborationists](https://en.wikipedia.org/wiki/Collaborationism)
 
 Former Colégio Militar PSP Officers:
-0. [**Pedro Miguel Grilo**], 
-0. [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized)(https://pt.linkedin.com/in/pedro-grilo-8760013b)
+0. [**Pedro Miguel Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b)
+0. [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized)
 
 My former neighbor and some former acquaintances:
 0. [**Nuno Correia**](https://pt.linkedin.com/in/nuno-correia-383a86154) and Carla Maria Marinho Rodrigues, 
-[**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card)
+0. [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card)
+
 and several others...
 
 #### [My cybertorture story >>>](MentisMorbumTuum.md)
