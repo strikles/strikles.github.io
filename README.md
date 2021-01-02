@@ -71,7 +71,7 @@ The notes of this [𝄞 *Opereta di Cipolla* 𝄢](https://iovs.arvojournals.org
 0. The dual standards of stealing exams and finals as a standard during my time as a student in Colégio Militar and simultaneously conspiring since I was a teenager to turn me into a synthetic psychopath labelled as "white trash", trying to direct violence towards my parents and women, turn me into a drug addict and get me to mimic the xenophobic, homophobic and misogynistic behaviour of others as a parrot!
 0. Using me and my family as involuntary clowns in a circus of extrajudicial trials and sentences whilst acting in the utmost arrogance trying to hide under the cover of criminal association with prominent members of society to give me a pointless moral lesson, relying both on lack of legislation and someone to enforce it
 
-The following [collaborationists](https://en.wikipedia.org/wiki/Collaborationism) and their criminal associates gave their full heart to this cause, whilst trying to exact their sentences in a suave and effortless fashion!
+The following [collaborationists](https://en.wikipedia.org/wiki/Collaborationism) and their criminal associates gave their full heart to this cause, whilst trying to exact their sentences in a suave and effortless fashion, revealing their true psychotic nature ;)
 
 Former Colégio Militar students who are/were @PSP Officers connected to the security staff of the President of the Portuguese Republic:
 
