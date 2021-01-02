@@ -280,7 +280,7 @@ The cybertorture medium used to direct violence towards women could be used to h
     </a>
 </p>
 
-Social honeypots for individuals with psychopathological issues filled with hate and anger, unwilling to "forgive and forget" based on the the movie [V for Vendetta](https://en.wikipedia.org/wiki/V_for_Vendetta_(film)) such as [The Anonymous Group](https://en.wikipedia.org/wiki/Anonymous_(group)) and their [Guy Fawkes](https://en.wikipedia.org/wiki/Guy_Fawkes) masks make matters worse. Whilst I like the renaissance look of the mask, the fact of the matter is Guy Fawkes was a terrorist and an idiot and so was [Robert Catesby](https://en.wikipedia.org/wiki/Robert_Catesby) ring leader of the failed [Gunpowder Plot](https://en.wikipedia.org/wiki/Gunpowder_Plot)!
+Social honeypots for individuals with psychopathological issues filled with hate and anger, unwilling to "forgive and forget" make matters worse. [Guy Fawkes](https://en.wikipedia.org/wiki/Guy_Fawkes) was a terrorist (hence an idiot) and so was [Robert Catesby](https://en.wikipedia.org/wiki/Robert_Catesby) ring leader of the failed [Gunpowder Plot](https://en.wikipedia.org/wiki/Gunpowder_Plot)!
 
 <!--
 𝆒 𝆓 
