@@ -5,8 +5,7 @@
 0. [A/HRC/RES/10/24 - the role and responsibility of medical and other health personnel](https://ap.ohchr.org/documents/E/HRC/resolutions/A_HRC_RES_10_24.pdf)
 
 ## Cybertorture as a [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) 
-
-Many of us are reward seeking machines driven mostly by self-interest, resulting in criminal behavior which could be nearly eradicated in a [Transparent Society](https://en.wikipedia.org/wiki/The_Transparent_Society).
+Most Humans are [reward seeking machines](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3004012/) driven by self-interest, resulting in criminal behavior which could be nearly eradicated in a [Transparent Society](https://en.wikipedia.org/wiki/The_Transparent_Society).
 
 For decades the United Nations have tried to raise awareness to address issues that affect our society whilst being mostly ignored by governments worldwide. 
 With the advent of [A/HRC/43/49 recognizing Cybertorture](https://www.undocs.org/A/HRC/43/49), combined with progress in the fields of Neuroscience and Neurolaw and raised interest in [neuromodulation](https://en.wikipedia.org/wiki/Neuromodulation_(medicine)) as a therapeutic procedure, along with the public disclosure of scientific content such as [neuromodulation of attention](pdf/1-s2.0-S0896627318300114-main.pdf) mechanisms, an opportunity has been created for someone to turn [arrows into flowers](https://core.ac.uk/download/pdf/60546298.pdf) by allowing individuals to [regulate their own states of mind](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3579548/) via self-rewarding payloads in a quasi-continuous [closed feedback loop](https://en.wikipedia.org/wiki/Control_theory#Open-loop_and_closed-loop_(feedback)_control), using the same medium used for cybertorture and hence eradicating narcotraffic!
