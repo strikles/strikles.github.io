@@ -85,3 +85,6 @@ A stígma is a mark on the skin.
 
 #### [Marian apparitions](https://en.wikipedia.org/wiki/List_of_Marian_apparitions)
 > Marian apparitions are reported supernatural appearances by Mary, the mother of Jesus
+
+#### ["Deus Caritas Est"](http://www.vatican.va/content/benedict-xvi/en/encyclicals/documents/hf_ben-xvi_enc_20051225_deus-caritas-est.html)
+Deus caritas est, subtitled De Christiano Amore, is a 2005 encyclical, the first written by Pope Benedict XVI, in large part derived from writings by his late predecessor, Pope John Paul II. Its subject is love, as seen from a Christian perspective, and God's place within all love.
