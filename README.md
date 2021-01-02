@@ -81,7 +81,9 @@ Former Colégio Militar students who are/were @PSP Officers connected to the sec
 0. **Luis Nazareth Carvalho Figueira** (17 at Colégio Militar)
 0. [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized) (15 at Colégio Militar)
 
-These guys act as 3 stooges by collaborating in Faith Trials and behaving like [The HumancentiPad who cannot read](https://www.southparkstudios.nu/episodes/j6a6zs/south-park-humancentipad-season-15-ep-1). So let me be very clear, **the catholic church does not condone Faith Trials** and police officers don't act like fascist criminals collaborating with cybersodomy, vibrotactile genital torture, intercourse sabotage and treating citizens like dogs incessantly delivering payloads to neck, cerebellum and occipital part of the skull to draw synthetic psychosis and feelings of self-harm to hide under the cover of prominent members of society and medical malpractice via psychiatric fraud and false therapy acting like cowards, Period!
+These guys act as 3 stooges by collaborating in Faith Trials and behaving like [The HumancentiPad who cannot read](https://www.southparkstudios.nu/episodes/j6a6zs/south-park-humancentipad-season-15-ep-1). Maybe they can read the following 
+
+**The catholic church does not condone Faith Trials** and police officers don't act like fascist criminals acting in criminal association to exact extrajudicial sentences of cybersodomy, vibrotactile genital torture, intercourse sabotage and treating citizens like dogs by incessantly delivering noxious payloads to neck, cerebellum and occipital part of the skull and soft tissues in the head to draw synthetic psychosis and feelings of self-harm, hiding under the cover of prominent members of society and a veil of medical malpractice via psychiatric fraud and false therapy acting like cowards!
 
 Other former Colégio Militar students who are/were @PSP Officers:
 
