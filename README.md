@@ -68,7 +68,7 @@ Whilst I am an adept of [Transparent Behavior](https://en.wikipedia.org/wiki/Tra
 
 The notes of this [𝄞 *Operetta di Cipolla* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) are the following:
 
-0. The dual standards of stealing exams and finals and engaging in criminal like behavior as if the school was a training camp for the special operations group as a standard during my time as a student in Colégio Militar, [an issue which I believe has recently been addressed](http://www.asjp.pt/2016/04/09/tradicoes-militares-colidem-com-o-poder-politico/)!
+0. The dual standards of stealing exams and finals and engaging in "criminal like" behavior, as if the school was a training camp for the special operations group ([a standard during my time as a student in Colégio Militar and an issue which I believe has recently been addressed](http://www.asjp.pt/2016/04/09/tradicoes-militares-colidem-com-o-poder-politico/))!
 0. Conspiring to turn me into a synthetic psychopath labelled as "white trash", trying to direct violence towards my parents and women, turn me into a drug addict and get me to mimic the xenophobic, homophobic and misogynistic behaviour of others like [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) and his criminal associates recruited for the effect!
 0. Using me and my family as involuntary clowns in a circus of extrajudicial trials and sentences whilst acting in the utmost arrogance trying to hide under the cover of criminal association with prominent members of society to give me a pointless moral lesson, relying both on lack of legislation and someone to enforce it!
 
