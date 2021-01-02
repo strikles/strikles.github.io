@@ -4,6 +4,21 @@
 0. [A/HRC/RES/13/19 - the role and responsibility of judges, prosecutors and lawyers](https://documents-dds-ny.un.org/doc/UNDOC/GEN/G10/129/70/PDF/G1012970.pdf?OpenElement)
 0. [A/HRC/RES/10/24 - the role and responsibility of medical and other health personnel](https://ap.ohchr.org/documents/E/HRC/resolutions/A_HRC_RES_10_24.pdf)
 
+## [José Saramago, Religious Offence and Freedom of Speech](https://en.wikipedia.org/wiki/Religious_offense)
+Nobel Prize winner [**José Saramago**](https://en.wikipedia.org/wiki/Jos%C3%A9_Saramago) went into exile as a symbolic gesture on the Spanish island of Lanzarote in 1992 when the Government of Portugal under Prime Minister [Aníbal Cavaco Silva](https://en.wikipedia.org/wiki/An%C3%ADbal_Cavaco_Silva) ordered the removal of one of his works [**The Ghospel according to Jesus Christ**](https://en.wikipedia.org/wiki/The_Gospel_According_to_Jesus_Christ) from the Aristeion Prize's shortlist, claiming the work was religiously offensive.
+
+Some of these individuals **insinuated** via synthetic telepathy José Saramago exiled himself due to [**cybertorture**](https://www.undocs.org/A/HRC/43/49). 
+They also **insinuated** they asked him what was the worst book he ever read to which he allegedly replied [**The Rape of the Mind**](https://www.amazon.com/Rape-Mind-Psychology-Menticide-Brainwashing/dp/1614277877) by [Joost Meerloo](https://en.wikipedia.org/wiki/Joost_Meerloo) who coined the term [**menticide**](https://en.wiktionary.org/wiki/menticide).
+
+This was followed by his work [**Blindness**](https://en.wikipedia.org/wiki/Blindness_(novel)) which they claimed was a social critique to the mass participation in the process and refusal to address the issue due to lack of a [**Neurolaw**](https://en.wikipedia.org/wiki/Neurolaw) framework, which has recently found [real use cases](https://www.frontiersin.org/articles/10.3389/fpsyg.2020.01762/full).
+In 2004 José Saramago published his novel [**Seeing**](https://en.wikipedia.org/wiki/Seeing_(novel)).
+
+<p align="center" width="100%">
+    <a href="https://en.wikipedia.org/wiki/Seeing_(novel)">
+        <img src="img/IMG_0564.png">
+    </a>
+</p>
+
 ## Cybertorture as a [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) 
 Most humans are [reward seeking agents](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3004012/) driven by selfish self-interest, often resulting in criminal behavior which could be nearly eradicated in a [Transparent Society](https://en.wikipedia.org/wiki/The_Transparent_Society). Social Behavior and Cooperative games may involve altruistic agents who in opposition to selfish agents put the interests of others above their own...
 
@@ -71,21 +86,6 @@ My former neighbor and some former acquaintances:
 and several others...
 
 #### [My cybertorture story >>>](MentisMorbumTuum.md)
-
-## [José Saramago, Religious Offence and Freedom of Speech](https://en.wikipedia.org/wiki/Religious_offense)
-Nobel Prize winner [**José Saramago**](https://en.wikipedia.org/wiki/Jos%C3%A9_Saramago) went into exile as a symbolic gesture on the Spanish island of Lanzarote in 1992 when the Government of Portugal under Prime Minister [Aníbal Cavaco Silva](https://en.wikipedia.org/wiki/An%C3%ADbal_Cavaco_Silva) ordered the removal of one of his works [**The Ghospel according to Jesus Christ**](https://en.wikipedia.org/wiki/The_Gospel_According_to_Jesus_Christ) from the Aristeion Prize's shortlist, claiming the work was religiously offensive.
-
-Some of these individuals **insinuated** via synthetic telepathy José Saramago exiled himself due to [**cybertorture**](https://www.undocs.org/A/HRC/43/49). 
-They also **insinuated** they asked him what was the worst book he ever read to which he allegedly replied [**The Rape of the Mind**](https://www.amazon.com/Rape-Mind-Psychology-Menticide-Brainwashing/dp/1614277877) by [Joost Meerloo](https://en.wikipedia.org/wiki/Joost_Meerloo) who coined the term [**menticide**](https://en.wiktionary.org/wiki/menticide).
-
-This was followed by his work [**Blindness**](https://en.wikipedia.org/wiki/Blindness_(novel)) which they claimed was a social critique to the mass participation in the process and refusal to address the issue due to lack of a [**Neurolaw**](https://en.wikipedia.org/wiki/Neurolaw) framework, which has recently found [real use cases](https://www.frontiersin.org/articles/10.3389/fpsyg.2020.01762/full).
-In 2004 José Saramago published his novel [**Seeing**](https://en.wikipedia.org/wiki/Seeing_(novel)).
-
-<p align="center" width="100%">
-    <a href="https://en.wikipedia.org/wiki/Seeing_(novel)">
-        <img src="img/IMG_0564.png">
-    </a>
-</p>
 
 ## Police Brutality, [Extrajudicial punishment](https://en.wikipedia.org/wiki/Extrajudicial_punishment) and Cybertorture
 
