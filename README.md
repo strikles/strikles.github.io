@@ -5,7 +5,7 @@
 0. [A/HRC/RES/10/24 - the role and responsibility of medical and other health personnel](https://ap.ohchr.org/documents/E/HRC/resolutions/A_HRC_RES_10_24.pdf)
 
 ## Cybertorture as a [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) 
-Most Humans are [reward seeking machines](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3004012/) driven by self-interest, resulting in criminal behavior which could be nearly eradicated in a [Transparent Society](https://en.wikipedia.org/wiki/The_Transparent_Society).
+Most humans are [reward seeking machines](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3004012/) driven by selfish self-interest, resulting in criminal behavior which could be nearly eradicated in a [Transparent Society](https://en.wikipedia.org/wiki/The_Transparent_Society). Social Behavior and Cooperative games may involve altruistic agents who in opposition to selfish agents put the interests of others above their own...
 
 [Game Theory and Cooperation: How Putting Others First Can Help Everyone](https://kids.frontiersin.org/article/10.3389/frym.2017.00066)
 > Leo Durocher, a famous baseball player from the 1930s, once said that “Nice guys finish last.” That may be true in baseball, but it is not true in life more generally. In this article, we use ideas from the branch of mathematics known as “game theory” to study a situation known as the “Prisoners’ Dilemma (PD),” which sheds light on why people often fail to work well together. Game theory shows that people who are kind and trustworthy have a strategic advantage, as they can “change the game” to escape the PD and make everyone better off, including themselves. So, truly, “nice guys finish first.”
