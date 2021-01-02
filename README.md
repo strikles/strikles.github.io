@@ -53,12 +53,12 @@ The notes of this [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article
 
 Former Colégio Militar students who are/were @PSP Officers connected to the security staff of the President of the Portuguese Republic:
 
-0. [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized)
-**Luis Nazareth Carvalho Figueira** (17 at Colégio Militar)
+0. [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized) (17 at Colégio Militar)
+0. [**Luis Nazareth Carvalho Figueira**] (17 at Colégio Militar)
 
 Former Colégio Militar students who are/were @PSP Officers:
 
-0. [**Pedro Miguel Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b)
+0. [**Pedro Miguel Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) (427 at Colégio Militar)
 
 My former neighbor and some former acquaintances:
 
