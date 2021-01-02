@@ -66,7 +66,7 @@ Whilst I am an adept of [Transparent Behavior](https://en.wikipedia.org/wiki/Tra
 
 [Mi](https://en.wikipedia.org/wiki/Solf%C3%A8ge) is a beautiful musical note but unless if you are composing something like [4'33''](https://en.wikipedia.org/wiki/4%E2%80%B233%E2%80%B3) **WE** need more musical notes to create a [𝄞 melody 𝄢](https://www.youtube.com/watch?v=80D3vkuLaxs). 
 
-The notes of this [𝄞 *Opereta di Cipolla* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) are the following:
+The notes of this [𝄞 *Operetta di Cipolla* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) are the following:
 
 0. The dual standards of stealing exams and finals as a standard during my time as a student in Colégio Militar and simultaneously conspiring since I was a teenager to turn me into a synthetic psychopath labelled as "white trash", trying to direct violence towards my parents and women, turn me into a drug addict and get me to mimic the xenophobic, homophobic and misogynistic behaviour of others as a parrot!
 0. Using me and my family as involuntary clowns in a circus of extrajudicial trials and sentences whilst acting in the utmost arrogance trying to hide under the cover of criminal association with prominent members of society to give me a pointless moral lesson, relying both on lack of legislation and someone to enforce it
