@@ -89,10 +89,10 @@ Since Cybertorture paired with Psychiatric Fraud and False therapy has been used
 My sincere apologies!
 </div>
 
-#### Attempts to perpetuate psychiatric fraud and false therapy under a misdiagnosis of **paranoid schizophrenia** as a cover for an illegal sentence of cognitive impairment, forcing me to live out of welfare or attempting to force my return to Portugal will result in seeking [legal action](https://www.macfound.org/networks/research-network-on-law-and-neuroscience/) leaving the European Union Synthetic Mental Illness Psychiatric Dictate and asking for [**Refugee Status**](https://www.redcross.org.uk/get-help/get-help-as-a-refugee) :(
-
 <p align="center" width="100%">
     <a href="https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies">
         <img src="img/t_mental_freedom_r.jpg">
     </a>
 </p>
+
+#### Attempts to perpetuate psychiatric fraud and false therapy under a misdiagnosis of **paranoid schizophrenia** as a cover for an illegal sentence of cognitive impairment, forcing me to live out of welfare or attempting to force my return to Portugal will result in seeking [legal action](https://www.macfound.org/networks/research-network-on-law-and-neuroscience/) leaving the European Union Synthetic Mental Illness Psychiatric Dictate and asking for [**Refugee Status**](https://www.redcross.org.uk/get-help/get-help-as-a-refugee) :(
