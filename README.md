@@ -37,7 +37,7 @@ Since voting is compulsory, suffrage over synthetic telepathy would solve the pr
     </a>
 </p>
 
-Most of these issues would not exist if we followed the [Open Source Model](https://en.wikipedia.org/wiki/Open-source_model) or at the very least, the rules were made Clear and Transparent. Obscurity and deception games culminate in [Solitude](https://en.wikipedia.org/wiki/Solitude), delusional quests for [Anonymity](https://en.wikipedia.org/wiki/Anonymity), [Aggression and Violent Behavior](https://en.wikipedia.org/wiki/Aggression_and_Violent_Behavior) and acts of [Terrorism](https://en.wikipedia.org/wiki/Terrorism).
+Most of these issues would not exist if we followed the [Open Source Model](https://en.wikipedia.org/wiki/Open-source_model) or at the very least, the rules were made Clear and Transparent. Obscurity and deception games culminate in [Solitude](https://en.wikipedia.org/wiki/Solitude), delusional quests for [Anonymity](https://en.wikipedia.org/wiki/Anonymity), [Aggression and Violent Behavior](https://en.wikipedia.org/wiki/Aggression_and_Violent_Behavior) and acts of [Terrorism](https://en.wikipedia.org/wiki/Terrorism). Please bear in mind [Guy Fawkes](https://en.wikipedia.org/wiki/Guy_Fawkes) was a terrorist (hence an idiot) and so was [Robert Catesby](https://en.wikipedia.org/wiki/Robert_Catesby) ring leader of the failed [Gunpowder Plot](https://en.wikipedia.org/wiki/Gunpowder_Plot)!
 
 <p align="center" width="100%">
     <a href="https://www.compoundchem.com/2014/01/22/the-chemistry-of-an-onion/">
@@ -280,7 +280,7 @@ The cybertorture medium used to direct violence towards women could be used to h
     </a>
 </p>
 
-Social honeypots for individuals with psychopathological issues filled with hate and anger, unwilling to "forgive and forget" make matters worse. [Guy Fawkes](https://en.wikipedia.org/wiki/Guy_Fawkes) was a terrorist (hence an idiot) and so was [Robert Catesby](https://en.wikipedia.org/wiki/Robert_Catesby) ring leader of the failed [Gunpowder Plot](https://en.wikipedia.org/wiki/Gunpowder_Plot)!
+Social honeypots for individuals with psychopathological issues filled with hate and anger make matters worse. 
 
 <!--
 𝆒 𝆓 
