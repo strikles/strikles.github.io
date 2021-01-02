@@ -49,7 +49,7 @@ Whilst I am an adept of [Transparent Behavior](https://en.wikipedia.org/wiki/Tra
 
 [Mi](https://en.wikipedia.org/wiki/Solf%C3%A8ge) is a beautiful musical note but unless if you are composing something like [4'33''](https://en.wikipedia.org/wiki/4%E2%80%B233%E2%80%B3) **WE** need more musical notes to create a [𝄞 melody 𝄢](https://www.youtube.com/watch?v=80D3vkuLaxs).
 
-#### [Part of my cybertorture story >>>](#mentis-morbum-tuum-)
+#### [Part of my cybertorture story >>>](MentisMorbumTuum.md)
 
 ## [José Saramago, Religious Offence and Freedom of Speech](https://en.wikipedia.org/wiki/Religious_offense)
 Nobel Prize winner [**José Saramago**](https://en.wikipedia.org/wiki/Jos%C3%A9_Saramago) went into exile as a symbolic gesture on the Spanish island of Lanzarote in 1992 when the Government of Portugal under Prime Minister [Aníbal Cavaco Silva](https://en.wikipedia.org/wiki/An%C3%ADbal_Cavaco_Silva) ordered the removal of one of his works [**The Ghospel according to Jesus Christ**](https://en.wikipedia.org/wiki/The_Gospel_According_to_Jesus_Christ) from the Aristeion Prize's shortlist, claiming the work was religiously offensive.
@@ -286,7 +286,9 @@ I've vowed to fight inequality as part of my Catholic Confirmation Rite and to d
 0. [Enduring Cybertorture with Scientists](EnduringCybertortureWithScientists.md)
 0. [Enduring Cybertorture with Neuroanatomy](Neuroanatomy.md)
 
-# Mentis Morbum Tuum 𝄫
+## [Mentis Morbum Tuum 𝄫](MentisMorbumTuum.md)
+
+#### [Part of my cybertorture story >>>](MentisMorbumTuum.md)
 
 <p align="center" width="100%">
     <a href="https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies">
