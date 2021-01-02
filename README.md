@@ -47,9 +47,20 @@ Most of these issues would not exist if we followed the [Open Source Model](http
 
 Whilst I am an adept of [Transparent Behavior](https://en.wikipedia.org/wiki/Transparency_(behavior)), I also like "fair game" and I highly value my [personal autonomy](https://en.wikipedia.org/wiki/Autonomy) which should not be put in jeopardy by being forced into unemployment and welfare via cybertorture extrajudicial sentences so that I can't support myself and my "laptop" and "mobile phone" being set as targets to be destroyed under states of extreme exhaustion via sleep deprivation by sadists out of control who draw pleasure from generating synthetic psychotic behavior.
 
-[Mi](https://en.wikipedia.org/wiki/Solf%C3%A8ge) is a beautiful musical note but unless if you are composing something like [4'33''](https://en.wikipedia.org/wiki/4%E2%80%B233%E2%80%B3) **WE** need more musical notes to create a [𝄞 melody 𝄢](https://www.youtube.com/watch?v=80D3vkuLaxs).
+[Mi](https://en.wikipedia.org/wiki/Solf%C3%A8ge) is a beautiful musical note but unless if you are composing something like [4'33''](https://en.wikipedia.org/wiki/4%E2%80%B233%E2%80%B3) **WE** need more musical notes to create a [𝄞 melody 𝄢](https://www.youtube.com/watch?v=80D3vkuLaxs). 
 
-#### [Part of my cybertorture story >>>](MentisMorbumTuum.md)
+The notes of this [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) are the [collaborationists](https://en.wikipedia.org/wiki/Collaborationism)
+
+Former Colégio Militar PSP Officers:
+0. [**Pedro Miguel Grilo**], 
+0. [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized)(https://pt.linkedin.com/in/pedro-grilo-8760013b)
+
+My former neighbor and some former acquaintances:
+0. [**Nuno Correia**](https://pt.linkedin.com/in/nuno-correia-383a86154) and Carla Maria Marinho Rodrigues, 
+[**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card)
+and several others...
+
+#### [My cybertorture story >>>](MentisMorbumTuum.md)
 
 ## [José Saramago, Religious Offence and Freedom of Speech](https://en.wikipedia.org/wiki/Religious_offense)
 Nobel Prize winner [**José Saramago**](https://en.wikipedia.org/wiki/Jos%C3%A9_Saramago) went into exile as a symbolic gesture on the Spanish island of Lanzarote in 1992 when the Government of Portugal under Prime Minister [Aníbal Cavaco Silva](https://en.wikipedia.org/wiki/An%C3%ADbal_Cavaco_Silva) ordered the removal of one of his works [**The Ghospel according to Jesus Christ**](https://en.wikipedia.org/wiki/The_Gospel_According_to_Jesus_Christ) from the Aristeion Prize's shortlist, claiming the work was religiously offensive.
