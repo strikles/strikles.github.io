@@ -49,13 +49,15 @@ Whilst I am an adept of [Transparent Behavior](https://en.wikipedia.org/wiki/Tra
 
 [Mi](https://en.wikipedia.org/wiki/Solf%C3%A8ge) is a beautiful musical note but unless if you are composing something like [4'33''](https://en.wikipedia.org/wiki/4%E2%80%B233%E2%80%B3) **WE** need more musical notes to create a [𝄞 melody 𝄢](https://www.youtube.com/watch?v=80D3vkuLaxs). 
 
-The notes of this [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) are the [collaborationists](https://en.wikipedia.org/wiki/Collaborationism)
+The notes of this [𝄞 *Opera Cepa* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) are the following [collaborationists](https://en.wikipedia.org/wiki/Collaborationism) and their criminal associates...
 
-Former Colégio Militar PSP Officers:
+Former Colégio Militar students who are/were @PSP Officers:
+
 0. [**Pedro Miguel Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b)
 0. [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized)
 
 My former neighbor and some former acquaintances:
+
 0. [**Nuno Correia**](https://pt.linkedin.com/in/nuno-correia-383a86154) and Carla Maria Marinho Rodrigues, 
 0. [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card)
 
