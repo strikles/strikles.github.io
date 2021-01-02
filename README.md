@@ -389,5 +389,3 @@ They exact morbid extrajudicial cognitive impairment sentences for entertainment
         <img src="img/t_mental_freedom_r.jpg">
     </a>
 </p>
-
-["Deus Caritas Est"](http://www.vatican.va/content/benedict-xvi/en/encyclicals/documents/hf_ben-xvi_enc_20051225_deus-caritas-est.html)
