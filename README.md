@@ -87,7 +87,7 @@ and several others...
 
 #### [My cybertorture story >>>](MentisMorbumTuum.md)
 
-## [Extrajudicial punishment](https://en.wikipedia.org/wiki/Extrajudicial_punishment) and Cybertorture
+## Cybertorture as [Extrajudicial punishment](https://en.wikipedia.org/wiki/Extrajudicial_punishment)
 
 Cybertorture is a means to exact [extrajudicial punishment](https://en.wikipedia.org/wiki/Extrajudicial_punishment) for those who **allegedly** evade loopholes in the legal system and as a form of [social stratification](https://en.wikipedia.org/wiki/Social_stratification). It may involve acting in criminal association with others who are recruited (and possibly manipulated), either to make the case untriable, or as a form of entrapment.
 
