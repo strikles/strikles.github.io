@@ -64,7 +64,7 @@ Former Colégio Militar students who are/were @PSP Officers:
 My former neighbor and some former acquaintances:
 
 0. [**Nuno Correia**](https://pt.linkedin.com/in/nuno-correia-383a86154) and Carla Maria Marinho Rodrigues, 
-0. [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card)
+0. [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card), [**Tiago Jorge Roque**](https://www.facebook.com/tiago.j.roque) and João Leiria
 
 and several others...
 
