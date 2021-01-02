@@ -306,6 +306,7 @@ I've vowed to fight inequality as part of my Catholic Confirmation Rite and to d
 0. [Enduring Cybertorture with Faith](EnduringCybertortureWithFaith.md)
 0. [Enduring Cybertorture with Scientists](EnduringCybertortureWithScientists.md)
 0. [Enduring Cybertorture with Neuroanatomy](Neuroanatomy.md)
+0. [Enduring Cybertorture With Game Theory](EnduringCybertortureWithGameTheory.md)
 
 ## [Mentis Morbum Tuum 𝄫](MentisMorbumTuum.md)
 
