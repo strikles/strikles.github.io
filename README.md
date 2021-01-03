@@ -315,6 +315,13 @@ Similarly to [Ludwig Wittgenstein](https://en.wikipedia.org/wiki/Ludwig_Wittgens
 
 Maybe those same idiots should go read on the story of [George Lemaître and Pope Pius the XXII](http://inters.org/pius-xii-lemaitre) since in Portugal most Freemasonry lodges have to be Catholic and participating in cybertorture to murder people in the format of a circus show to hide the procedure under a veil of psychiatric fraud, medical malpractice, false therapy whilst treating people like idiots is not compatible with Catholic principles! Given that you have set Cybersodomy as a standard extrajudicial sentence in our society maybe you should call yourselves **"Great Architects of Uranus"** to keep coherency!
 
+<p align="center" width="100%">
+    <a href="https://www.presidencia.pt">
+        <img src="img/01.Siebzehneck-Animation-Richmond.gif">
+    </a>
+</p>
+
+
 I've vowed to fight inequality as part of my Catholic Confirmation Rite and to do something for society upon leaving Colégio Militar. As such I have taken vows of cellibacy to make sure we will achieve our objective! Also I don't need your **"Trowel and Plumb line"**, [**I'll use my 2 Fingers instead ✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
 
 ## [Enduring Cybertorture :)](EnduringCybertorture.md)
