@@ -308,6 +308,11 @@ I will not allow [Collaborationists](https://en.wikipedia.org/wiki/Collaboration
 
 I am very 🏳️‍🌈 Happy 🏳️‍🌈 with my **Very Male Gender**, and am NOT Gender Dysphoric in any way as some attempted to insinuate, going as far as resorting to Remote Vibrotactile Genital Torture, Cyber Sodomy and forcing a misdiagnosis of Paranoid Schizophrenia in an attempt to force acts of self-harm), and I would like to remind those in Portugal behaving like primates and engaging in a Mars versus Venus banana quest, namely DJ's and Psychiatrists leading humanity astray, and others worldwide, the quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/) also includes [**Intersex People**](https://en.wikipedia.org/wiki/Hermaphrodite) ;)
 
+#### "Deus Caritas Est" means "God is Love"!
+It does not mean God is composed by a bunch of delusional idiots like several former Colégio Militar students, elected Portuguese Government officials directly connected to the Portuguese President and other idiots acting under the moniker "No Love Lost" claiming to be the "Grand Architects of the Universe", acting like criminals, exacting extrajudicial trials and sentences, making people mutilate themselves, directing violence towards parents and women, creating drug addicts and making people jump out of the window to provide content for a macabre cybertorture circus of human degradation and death! 
+
+Maybe those same idiots should go read on the story of George Lemaître and Pope Pius the XXII since in Portugal most Freemasonry lodges have to be Catholic and participating in cybertorture to murder people in the format of a circus show to hide the procedure under a veil of psychiatric fraud, medical malpractice, false therapy whilst treating people like idiots is not compatible with Catholic principles!
+
 I've vowed to fight inequality as part of my Catholic Confirmation Rite and to do something for society upon leaving Colégio Militar. As such I have taken vows of cellibacy to make sure we will achieve our objective! Also I don't need your **"Trowel and Plumb line"**, [**I'll use my 2 Fingers instead ✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
 
 ## [Enduring Cybertorture :)](EnduringCybertorture.md)
