@@ -194,6 +194,12 @@ The Declaration of Madrid has now been superseded by the 2020 WPA Code of Ethics
 
 Dr. Amen is the author of [The End of Mental Illness: How Neuroscience Is Transforming Psychiatry and Helping Prevent or Reverse Mood and Anxiety Disorders, ADHD, Addictions, PTSD, Psychosis, Personality Disorders, and More](https://www.amazon.com/End-Mental-Illness-Neuroscience-Transforming/dp/1496438159)
 
+<p align="center" width="100%">
+    <a href="https://www.amazon.com/End-Mental-Illness-Neuroscience-Transforming/dp/1496438159">
+        <img src="img/dr_amen.jpg">
+    </a>
+</p>
+
 > [Daniel Amen](https://en.wikipedia.org/wiki/Daniel_Amen) was born in Encino, California, in July 1954 to Lebanese immigrant parents. He received his undergraduate biology degree from Southern California College in 1978 and his medical degree from Oral Roberts University School of Medicine in 1982. Amen did his general psychiatric training at the [Walter Reed Army Medical Center in Washington, D.C.](https://en.wikipedia.org/wiki/Walter_Reed_Army_Medical_Center), and his child and adolescent psychiatry training at Tripler Army Medical Center in Honolulu. Amen is double board certified by the American Board of Psychiatry and Neurology in General Psychiatry and Child and Adolescent Psychiatry.
 
 Further publicly disclosed information in the field of [Neuroscience](https://www.cell.com/neuron/pdf/S0896-6273(18)30011-4.pdf) has been made available and awareness to alternative therapeutic approaches to conventional pharmacotherapy such as the use of [electroceuticals](https://www.darpa.mil/program/electrical-prescriptions) is being raised!
