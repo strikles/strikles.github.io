@@ -225,20 +225,13 @@ Publicly disclosed information in the field of [Neuroscience](https://www.cell.c
 
 > Following successes in early proof-of-concept studies, the ElectRx devices and therapeutic systems under development are entering into clinical studies. If successful, such precise neuromodulation capability technology would reduce dependence on traditional drugs and create new treatments that could be automatically and continuously tuned to the needs of warfighters without side effects. The technology could also help doctors evaluate and predict various physiological states, and characterize host response in patients with severe infections, providing a quantitative framework to guide operations and therapy.
 
-<div align="center">
-      <a href="https://www.youtube.com/watch?v=5yLzZikS15k">
-         <img src="img/Screenshot 2020-12-14 at 23.27.47.png" style="width:100%;">
-      </a>
-</div>
-DARPA provides. Thank you ;)
-
-## [Computational Psychiatry](https://www.technologyreview.com/2017/07/21/242297/the-emerging-science-of-computational-psychiatry/)
-
 <p align="center" width="100%">
     <a href="https://www.compoundchem.com/2014/01/22/the-chemistry-of-an-onion/">
         <img src="img/t_electroceuticals.png">
     </a>
 </p>
+
+## [Computational Psychiatry](https://www.technologyreview.com/2017/07/21/242297/the-emerging-science-of-computational-psychiatry/)
 
 Psychiatry, the study and prevention of mental disorders, is currently undergoing a quiet revolution. For decades, even centuries, this discipline has been based largely on subjective observation. Large-scale studies have been hampered by the difficulty of objectively assessing human behavior and comparing it with a well-established norm. Just as tricky, there are few well-founded models of neural circuitry or brain biochemistry, and it is difficult to link this science with real-world behavior.
 
@@ -266,7 +259,13 @@ Neuroscience and neurolaw have found practical use cases in the Netherlands:
 0. [Neurolaw: de relevantie voor de forensische psychiatrie](http://www.tijdschriftvoorpsychiatrie.nl/assets/articles/56-2014-9-artikel-meynen.pdf)
 0. [Maastricht neurolaw 2014](http://www.antoniocasella.eu/dnlaw/Maastricht_neurolaw_2014.pdf)
 0. [Real Neurolaw in the Netherlands: The Role of the Developing Brain in the New Adolescent Criminal Law](https://www.frontiersin.org/articles/10.3389/fpsyg.2020.01762/full)
-0. [Other relevant publications related to Neurolaw in The Netherlands](https://www.lawneuro.org/netherlands.php) 
+0. [Other relevant publications related to Neurolaw in The Netherlands](https://www.lawneuro.org/netherlands.php)
+
+<p align="center" width="100%">
+    <a href="https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies">
+        <img src="img/t_neurorights.jpg">
+    </a>
+</p>
 
 ## [Ending Police Brutality](https://en.wikipedia.org/wiki/Police_brutality)
 
@@ -358,8 +357,9 @@ I've vowed to fight inequality as part of my Catholic Confirmation Rite and to d
 
 #### [Part of my cybertorture story >>>](MentisMorbumTuum.md)
 
-<p align="center" width="100%">
-    <a href="https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies">
-        <img src="img/t_neurorights.jpg">
-    </a>
-</p>
+<div align="center">
+      <a href="https://www.youtube.com/watch?v=5yLzZikS15k">
+         <img src="img/Screenshot 2020-12-14 at 23.27.47.png" style="width:100%;">
+      </a>
+</div>
+DARPA provides. Thank you ;)
