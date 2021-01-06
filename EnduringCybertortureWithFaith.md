@@ -1,4 +1,4 @@
-## [What Makes Others Question their Faith](https://en.wikipedia.org/wiki/Carl_Friedrich_Gauss#Religious_views)
+## [Freedom of Creed](https://en.wikipedia.org/wiki/Carl_Friedrich_Gauss#Religious_views)
 
 Mixing [**Religion**](https://en.wikipedia.org/wiki/Religion) and [**Numerology**](https://en.wikipedia.org/wiki/Numerology) makes some people lose faith:
 
