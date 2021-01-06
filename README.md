@@ -13,6 +13,12 @@ The Four Freedoms were goals articulated by United States President Franklin D. 
 0. [Freedom from want](https://en.wikipedia.org/wiki/Freedom_from_want)
 0. [Freedom from fear](https://en.wikipedia.org/wiki/Freedom_from_fear)
 
+<p align="center" width="100%">
+    <a href="https://en.wikipedia.org/wiki/Four_Freedoms_(Norman_Rockwell)">
+        <img src="img/Norman_Rockwell.png">
+    </a>
+</p>
+
 > Roosevelt delivered his speech 11 months before the surprise Japanese attack on U.S. forces in Pearl Harbor, Hawaii that caused the United States to declare war on Japan, December 8, 1941. The State of the Union speech before Congress was largely about the national security of the United States and the threat to other democracies from world war that was being waged across the continents in the eastern hemisphere. In the speech, he made a break with the long-held tradition of United States non-interventionism. He outlined the U.S. role in helping allies already engaged in warfare.
 
 > In that context, he summarized the values of democracy behind the bipartisan consensus on international involvement that existed at the time. A famous quote from the speech prefaces those values: "As men do not live by bread alone, they do not fight by armaments alone." In the second half of the speech, he lists the benefits of democracy, which include economic opportunity, employment, social security, and the promise of "adequate health care".
