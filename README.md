@@ -153,8 +153,6 @@ Grotesque examples:
 
 ## [Cybertorture and Psychiatric Abuse](#mentis-morbum-tuum-) 
 
-[The World Psychiatry Association](https://www.wpanet.org/) has a new code of ethics [2020/OGA/7](pdf/e172f3_4cecd522c2d448c7944342ba88c527e5.pdf)
-
 In Portugal an article under the title ["Mental illness is inevitable"](https://expresso.pt/sociedade/2017-06-13-Diogo-Telles-Correia-A-doenca-mental-e-inevitavel) was published by [Jornal Expresso](https://expresso.pt)
 
 > It's like watching a conversation: on the “Think. To feel. Living ”, we read Judite Sousa's questions and received the answers from [Diogo Telles Correia](https://www.amazon.com.br/Livros-Diogo-Telles-Correia), psychiatrist, psychotherapist and professor at the Faculty of Medicine of Lisbon. The result is a book that paints an accessible picture of what is the “inevitable” mental illness in the 21st century, the time of the hurried man, with no time to reflect; the child's time clinging to television or school books, hyperactive and unstoppable; the time of depression and anxiety, harassment at work and potentially psychopathic politicians. To Expresso, the specialist clarifies by email if the current world is making us (more) sick and tells us which professions are most affected by a world in which it seems prohibited to stop.
@@ -166,6 +164,8 @@ In Portugal an article under the title ["Mental illness is inevitable"](https://
 </p>
 
 Whilst I do agree with the statement that "the current world is making us (more) sick" due to evidence of [cybertorture](https://www.undocs.org/A/HRC/43/49) and psychiatric abuse worldwide being denounced by the United Nations, I stronly disagree with notions of “inevitable mental illness" and forced conventional pharmacotherapy!
+
+[The World Psychiatry Association](https://www.wpanet.org/) has a new code of ethics [2020/OGA/7](pdf/e172f3_4cecd522c2d448c7944342ba88c527e5.pdf)
 
 The Declaration of Hawaii issued by the World Psychiatric Association in 1977 and updated in 1983 in Vienna was initiated because of political abuse of psychiatry in some countries in the seventies. This led to a long process of investigation and concern within the domain of professional ethics and paved the way for the Declaration of Madrid, which was endorsed by the General Assembly of the World Psychiatric Association in Madrid in 1996.
 
