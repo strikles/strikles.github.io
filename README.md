@@ -151,6 +151,15 @@ Grotesque examples:
 ## WHO - ICD, ICF
 -->
 
+
+## [Diagnostic and Statistical Manual of Mental Disorders](https://en.wikipedia.org/wiki/Diagnostic_and_Statistical_Manual_of_Mental_Disorders)
+
+The Diagnostic and Statistical Manual of Mental Disorders, Fifth Edition (DSM-5) is the 2013 update to the Diagnostic and Statistical Manual of Mental Disorders, the taxonomic and diagnostic tool published by the American Psychiatric Association (APA). In the United States, the DSM serves as the principal authority for psychiatric diagnoses. Treatment recommendations, as well as payment by health care providers, are often determined by DSM classifications, so the appearance of a new version has practical importance. The DSM-5 is the first DSM to use an Arabic numeral instead of a Roman numeral in its title, as well as the first "living document" version of a DSM.
+
+The DSM-5 is not a major revision of the DSM-IV-TR but there are significant differences. Changes in the DSM-5 include the reconceptualization of Asperger syndrome from a distinct disorder to an autism spectrum disorder; the elimination of subtypes of schizophrenia; the deletion of the "bereavement exclusion" for depressive disorders; the renaming of gender identity disorder to gender dysphoria; the inclusion of binge eating disorder as a discrete eating disorder; the renaming and reconceptualization of paraphilias, now called paraphilic disorders; the removal of the five-axis system; and the splitting of disorders not otherwise specified into other specified disorders and unspecified disorders.
+
+Some authorities criticized the fifth edition both before and after it was published. Critics assert, for example, that many DSM-5 revisions or additions lack empirical support; inter-rater reliability is low for many disorders; several sections contain poorly written, confusing, or contradictory information; and the psychiatric drug industry may have unduly influenced the manual's content ([many DSM-5 workgroup participants had ties to pharmaceutical companies](https://www.nejm.org/doi/full/10.1056/NEJMc0810237))
+
 ## [Cybertorture and Psychiatric Abuse](#mentis-morbum-tuum-) 
 
 In Portugal an article under the title ["Mental illness is inevitable"](https://expresso.pt/sociedade/2017-06-13-Diogo-Telles-Correia-A-doenca-mental-e-inevitavel) was published by [Jornal Expresso](https://expresso.pt)
@@ -202,29 +211,9 @@ Dr. Amen is the author of [The End of Mental Illness: How Neuroscience Is Transf
 
 > [Daniel Amen](https://en.wikipedia.org/wiki/Daniel_Amen) was born in Encino, California, in July 1954 to Lebanese immigrant parents. He received his undergraduate biology degree from Southern California College in 1978 and his medical degree from Oral Roberts University School of Medicine in 1982. Amen did his general psychiatric training at the [Walter Reed Army Medical Center in Washington, D.C.](https://en.wikipedia.org/wiki/Walter_Reed_Army_Medical_Center), and his child and adolescent psychiatry training at Tripler Army Medical Center in Honolulu. Amen is double board certified by the American Board of Psychiatry and Neurology in General Psychiatry and Child and Adolescent Psychiatry.
 
-Further publicly disclosed information in the field of [Neuroscience](https://www.cell.com/neuron/pdf/S0896-6273(18)30011-4.pdf) has been made available and awareness to alternative therapeutic approaches to conventional pharmacotherapy such as the use of [electroceuticals](https://www.darpa.mil/program/electrical-prescriptions) is being raised!
+## [Electroceuticals](https://www.scientificamerican.com/article/electroceuticals/)
 
-## [Diagnostic and Statistical Manual of Mental Disorders](https://en.wikipedia.org/wiki/Diagnostic_and_Statistical_Manual_of_Mental_Disorders)
-
-The Diagnostic and Statistical Manual of Mental Disorders, Fifth Edition (DSM-5) is the 2013 update to the Diagnostic and Statistical Manual of Mental Disorders, the taxonomic and diagnostic tool published by the American Psychiatric Association (APA). In the United States, the DSM serves as the principal authority for psychiatric diagnoses. Treatment recommendations, as well as payment by health care providers, are often determined by DSM classifications, so the appearance of a new version has practical importance. The DSM-5 is the first DSM to use an Arabic numeral instead of a Roman numeral in its title, as well as the first "living document" version of a DSM.
-
-The DSM-5 is not a major revision of the DSM-IV-TR but there are significant differences. Changes in the DSM-5 include the reconceptualization of Asperger syndrome from a distinct disorder to an autism spectrum disorder; the elimination of subtypes of schizophrenia; the deletion of the "bereavement exclusion" for depressive disorders; the renaming of gender identity disorder to gender dysphoria; the inclusion of binge eating disorder as a discrete eating disorder; the renaming and reconceptualization of paraphilias, now called paraphilic disorders; the removal of the five-axis system; and the splitting of disorders not otherwise specified into other specified disorders and unspecified disorders.
-
-Some authorities criticized the fifth edition both before and after it was published. Critics assert, for example, that many DSM-5 revisions or additions lack empirical support; inter-rater reliability is low for many disorders; several sections contain poorly written, confusing, or contradictory information; and the psychiatric drug industry may have unduly influenced the manual's content ([many DSM-5 workgroup participants had ties to pharmaceutical companies](https://www.nejm.org/doi/full/10.1056/NEJMc0810237))
-
-## [Computational Psychiatry](https://www.technologyreview.com/2017/07/21/242297/the-emerging-science-of-computational-psychiatry/), [Electroceuticals](https://www.scientificamerican.com/article/electroceuticals/) and [ElectRx](https://www.darpa.mil/program/electrical-prescriptions)
-
-<p align="center" width="100%">
-    <a href="https://www.compoundchem.com/2014/01/22/the-chemistry-of-an-onion/">
-        <img src="img/t_electroceuticals.png">
-    </a>
-</p>
-
-Psychiatry, the study and prevention of mental disorders, is currently undergoing a quiet revolution. For decades, even centuries, this discipline has been based largely on subjective observation. Large-scale studies have been hampered by the difficulty of objectively assessing human behavior and comparing it with a well-established norm. Just as tricky, there are few well-founded models of neural circuitry or brain biochemistry, and it is difficult to link this science with real-world behavior.
-
-That has begun to change thanks to the emerging discipline of computational psychiatry, which uses powerful data analysis, machine learning, and artificial intelligence to tease apart the underlying factors behind extreme and unusual behaviors.   
-
-Computational psychiatry has suddenly made it possible to mine data from long-standing observations and link it to mathematical theories of cognition. It’s also become possible to develop computer-based experiments that carefully control environments so that specific behaviors can be studied in detail.
+Publicly disclosed information in the field of [Neuroscience](https://www.cell.com/neuron/pdf/S0896-6273(18)30011-4.pdf) has been made available and awareness to alternative therapeutic approaches to conventional pharmacotherapy such as the use of [electroceuticals](https://www.darpa.mil/program/electrical-prescriptions) is being raised!
 
 ![](img/electrxhasth.png)
 
@@ -242,6 +231,20 @@ Computational psychiatry has suddenly made it possible to mine data from long-st
       </a>
 </div>
 DARPA provides. Thank you ;)
+
+## [Computational Psychiatry](https://www.technologyreview.com/2017/07/21/242297/the-emerging-science-of-computational-psychiatry/)
+
+<p align="center" width="100%">
+    <a href="https://www.compoundchem.com/2014/01/22/the-chemistry-of-an-onion/">
+        <img src="img/t_electroceuticals.png">
+    </a>
+</p>
+
+Psychiatry, the study and prevention of mental disorders, is currently undergoing a quiet revolution. For decades, even centuries, this discipline has been based largely on subjective observation. Large-scale studies have been hampered by the difficulty of objectively assessing human behavior and comparing it with a well-established norm. Just as tricky, there are few well-founded models of neural circuitry or brain biochemistry, and it is difficult to link this science with real-world behavior.
+
+That has begun to change thanks to the emerging discipline of computational psychiatry, which uses powerful data analysis, machine learning, and artificial intelligence to tease apart the underlying factors behind extreme and unusual behaviors.   
+
+Computational psychiatry has suddenly made it possible to mine data from long-standing observations and link it to mathematical theories of cognition. It’s also become possible to develop computer-based experiments that carefully control environments so that specific behaviors can be studied in detail.
 
 ## [Justice Reform](https://scilaw.org/)
 
