@@ -94,6 +94,17 @@ My former neighbor and some former acquaintances:
 0. [**Nuno Correia**](https://pt.linkedin.com/in/nuno-correia-383a86154) and Carla Maria Marinho Rodrigues, 
 0. [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) and his criminal associates [**Tiago Jorge Roque**](https://www.facebook.com/tiago.j.roque), João Leiria and several other current and former employees at [Tapada Crew](https://www.tapadacrew.com/), infecting society with their morbid comedy and poisonous psychotic behavior, promoting a criminal sub-culture, destroying families and degrading others in an attempt to rise up the social ladder!
 
+The Four Freedoms were goals articulated by United States President Franklin D. Roosevelt on Monday, January 6, 1941. In an address known as the [Four Freedoms speech](https://en.wikisource.org/wiki/The_Four_Freedoms_speech) (technically the 1941 State of the Union address), he proposed four fundamental freedoms that people "everywhere in the world" ought to enjoy:
+
+0. [Freedom of speech](https://en.wikipedia.org/wiki/Freedom_of_speech)
+0. [Freedom of worship](https://en.wikipedia.org/wiki/Freedom_of_worship)
+0. [Freedom from want](https://en.wikipedia.org/wiki/Freedom_from_want)
+0. [Freedom from fear](https://en.wikipedia.org/wiki/Freedom_from_fear)
+
+> Roosevelt delivered his speech 11 months before the surprise Japanese attack on U.S. forces in Pearl Harbor, Hawaii that caused the United States to declare war on Japan, December 8, 1941. The State of the Union speech before Congress was largely about the national security of the United States and the threat to other democracies from world war that was being waged across the continents in the eastern hemisphere. In the speech, he made a break with the long-held tradition of United States non-interventionism. He outlined the U.S. role in helping allies already engaged in warfare.
+
+> In that context, he summarized the values of democracy behind the bipartisan consensus on international involvement that existed at the time. A famous quote from the speech prefaces those values: "As men do not live by bread alone, they do not fight by armaments alone." In the second half of the speech, he lists the benefits of democracy, which include economic opportunity, employment, social security, and the promise of "adequate health care".
+
 #### [My cybertorture story >>>](MentisMorbumTuum.md)
 
 ## Cybertorture as [Extrajudicial punishment](https://en.wikipedia.org/wiki/Extrajudicial_punishment)
