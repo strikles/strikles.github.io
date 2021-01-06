@@ -369,21 +369,67 @@ I will not allow [Collaborationists](https://en.wikipedia.org/wiki/Collaboration
 
 I am very 🏳️‍🌈 Happy 🏳️‍🌈 with my **Very Male Gender**, and am NOT Gender Dysphoric in any way as some attempted to insinuate, going as far as resorting to Remote Vibrotactile Genital Torture, Cyber Sodomy and forcing a misdiagnosis of Paranoid Schizophrenia in an attempt to force acts of self-harm), and I would like to remind those in Portugal behaving like primates and engaging in a Mars versus Venus banana quest, namely DJ's and Psychiatrists leading humanity astray, and others worldwide, the quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/) also includes [**Intersex People**](https://en.wikipedia.org/wiki/Hermaphrodite) ;)
 
-#### "Deus Caritas Est" means "God is Love"!
-It does not mean God is composed by a bunch of delusional idiots like several former Colégio Militar students, law enforcement officers, current and former elected Portuguese Government officials directly connected to the Portuguese President and other DJ idiots acting under the moniker "No Love Lost" like Pedro Silva (Bar Capela), claiming to be the "Grand Architects of the Universe", stratifying society, acting like criminals, exacting extrajudicial trials and sentences, making people mutilate themselves, directing violence towards parents and women, creating drug addicts and making people jump out of the window to provide content for a macabre cybertorture circus of human degradation and death! 
+Dear President Marcelo Rebelo de Sousa
+(and former students from Colégio Militar, Largo da Luz, Portugal - who worked under your security staff, law enforcement agents like Pedro Miguel Grilo @PSP and other criminal associates recruited to divert attention)
 
-Similarly to [Ludwig Wittgenstein](https://en.wikipedia.org/wiki/Ludwig_Wittgenstein#Faith), If God was a megalomaniac human being using a square and compass to stratify society claiming to be catholic and worshipping some G.A.U. deity whilst acting as if he was a "Great Architect of the Universe" himself in a heretic fashion it would be my duty to oppose him!
+I shall refer to you as Grand Master Bundecca (10^33)
 
-Maybe those same idiots should go read on the story of [George Lemaître and Pope Pius the XXII](http://inters.org/pius-xii-lemaitre) since in Portugal most Freemasonry lodges claim to be Catholic and participating in cybertorture in the format of an international circus spectacle hiding the procedure under a veil of psychiatric fraud and false therapy via forced pharmacotherapy whilst treating people like [ignoratus](https://en.wiktionary.org/wiki/ignoratus) who don't know "how things work at the neurotransmitter level" in criminal association with [collaborationist](https://en.wikipedia.org/wiki/Collaborationism) clowns such as [Jasper Kums](https://nl.linkedin.com/in/jasperkums), [**Nuno Correia**](https://pt.linkedin.com/in/nuno-correia-383a86154) and Carla Maria Marinho Rodrigues when they could [treat psychopathologies or addictions](pdf/1-s2.0-S0896627318300114-main.pdf) via self-rewarding payloads in a quasi-continuous [closed feedback loop](https://en.wikipedia.org/wiki/Control_theory#Open-loop_and_closed-loop_(feedback)_control), using the same medium used for cybertorture!
+Deus Caritas Est means "God is LOVE". 
 
-Given that you have set Cybersodomy as a standard extrajudicial sentence in our society maybe you should call yourselves **"Great Architects of Uranus"** to keep coherency!
+Within the context of the Holy Trinity, God (the father) is everything, not an anthropomorphic alien species that may have interacted with primates in the past to create humankind, or any other very low probability hypothesis of intelligent design creationism which would be nothing more than a subset of God (the Father) as the SUPERSET - Everything (which encompasses the Universe, said aliens species and accounts for events reffered to as "miracles of creation") making the whole Great Architect of the Universe concept being associated to God (the father) sound idiotic and irrational!
+
+It may be a good idea to keep in mind the story of George Lemaître and Pope Pius XXII
 
 <p align="center" width="100%">
-    <a href="https://www.presidencia.pt">
+    <a href="img/Emblem_Trinitarian_Order_Rome.jpg">
+        <img src="img/Emblem_Trinitarian_Order_Rome.jpg">
+    </a>
+</p>
+
+It does not mean God is a ludicrous delusional concept of God as a Great Architect of the Universe (no less) in the ancient candle light of Saint Thomas Aquinas, and most definitely does not mean a compass and square was used or that western society should be stratified by megalomaniac fools stratifying society as if they were keepers of knowledge or these "Great Architects of the Universe" themselves which amounts to Heresy!
+
+<p align="center" width="100%">
+    <a href="img/01.Siebzehneck-Animation-Richmond.gif">
         <img src="img/01.Siebzehneck-Animation-Richmond.gif">
     </a>
 </p>
 
+Since in Portugal most Freemasonry lodges claim to be Catholic and the Holy Trinity is crucial to that theme have you considered discussing reform so that the whole thing sounds less megalomaniac and delusional ? Perhaps something more humble would make sense
+like proposing the letter G standing for God and not GAU, GADU, GAOTU or any other such nonsense with direct associations to the theme of architecture, insinuating current catholic freemasons should act as keepers of knowledge and in the context of history of freemasonry.
+
+<p align="center" width="100%">
+    <a href="img/Caravaggio_-_The_Incredulity_of_Saint_Thomas.jpg">
+        <img src="img/Caravaggio_-_The_Incredulity_of_Saint_Thomas.jpg">
+    </a>
+</p>
+
+Being transparent and making scientific research results public knowledge (keeping as close as possible to an open source like model) and updating the tools used (compass and square) to something more relevant to modern society and still in the context of God (The Holy Spirit) as those who protect life (immaculate conception) and craft acts of goodwill.
+
+Tools relevant to context specific areas (drafting legislation, enforcing the law, pursuit of knowledge, and providing medical treatment to those who need it) will help!
+
+<p align="center" width="100%">
+    <a href="img/Involute_of_Cardioid_Animation.gif">
+        <img src="img/Involute_of_Cardioid_Animation.gif">
+    </a>
+</p>
+
+Acting as keepers of knowledge for decades and participating in cybertorture circus spectacles to stratify society whilst acting in criminal association with members of crucial parts of society such as law enforcement officers, the justice system, medical doctors, etc and collaborationist clowns, hiding the procedure under a veil of psychiatric fraud and false therapy via forced pharmacotherapy whilst treating people as if they were "the ignorati" as Emile Barkof did by insinuating I didn't know "how things work at the neurotransmitter level" does not help in the context of the WPA 2020 code of ethics
+
+Many of us could have our psychopathologies and addictions addressed and quality of life significantly improved by self-rewarding neuromodulation payloads in a quasi-continuous closed feedback loop, using the same cybertorture medium! 
+Perhaps it would be a good idea for psychiatrists to tattoo these principles in their gluteus maximus prior to engaging in attempts of therapy with any patient!
+
+Further, given the introduction of "Internet Gaming Addiction" in DSM-V and the usage of synthetic telepathy to perform political propaganda, along with the common partidary mentality to further political party agendas, common to so many elected government representatives in the world of politics, which is a clear sign of addiction to political cooperative games that lead to suboptimal results in the context of system dynamics and the betterment of humanity as a whole. It may be of use to propose "Partidary Cooperative Gaming Addiction" to the WHO!
+
+Cybertorture and Cybersodomy have been set as standard extrajudicial sentences in our society, and I believe Sodomy should be seen in the biblical sense, i.e.
+
+> Modern scholarship, particularly in Judaism and certain branches of Christianity, has proposed that it is the inhabitants’ lack of hospitality, not their homosexuality, that gives offence to God. According to this view, the mob’s demands to rape the angelic guests reveals their deep-seated violence and inhospitality and is meant to stand in striking contrast to the gracious hospitality given by both Abraham and Lot to those same strangers. To further this claim, some cite the words of Jesus in Matthew 10:14–15:
+
+It's seems the Acronym GAU is more suited to fight anti-sodomy legislation in those 72 regions were being gay is still illegal and using it under the moniker "Great Architects of Uranus" 
+
+Given the way in which me and my family have been treated for the past few decades and the letter I received from the Openbaar Ministerie in the Netherlands requesting compulsory care it's parentory now is too late and I shall be forced to seek extrication of my mother from that hellhole fascist country you rule with an iron fist and attempt to leave the European Union with her and attempt to find peace elsewhere hoping you will stop squaring my anus!
+
+A not particularly humble, happy or subservient Portuguese citizen (by force)
+Bundecto (10^-33)
 
 I've vowed to fight inequality as part of my Catholic Confirmation Rite and to do something for society upon leaving Colégio Militar. As such I have taken vows of cellibacy to make sure we will achieve our objective! Also I don't need your **"Trowel and Plumb line"**, [**I'll use my 2 Fingers instead ✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
 
