@@ -69,23 +69,17 @@ This obviously results in paranoid behavior regarding [Global Surveillance](http
 Why would I bother spending money on public transport to vote when my every intention can be scrutinized as a victim of cybertorture ?
 Since voting is compulsory, suffrage over synthetic telepathy would solve the problem of lack of participation in the electoral process. All that is required is trust :)
 
+Most of these issues would not exist if we followed the [Open Source Model](https://en.wikipedia.org/wiki/Open-source_model) or at the very least, the rules were made Clear and Transparent. Obscurity and deception games culminate in [Solitude](https://en.wikipedia.org/wiki/Solitude), delusional quests for [Anonymity](https://en.wikipedia.org/wiki/Anonymity), [Aggression and Violent Behavior](https://en.wikipedia.org/wiki/Aggression_and_Violent_Behavior) and acts of [Terrorism](https://en.wikipedia.org/wiki/Terrorism). Please bear in mind [Guy Fawkes](https://en.wikipedia.org/wiki/Guy_Fawkes) was a terrorist (hence an idiot) and so was [Robert Catesby](https://en.wikipedia.org/wiki/Robert_Catesby) ring leader of the failed [Gunpowder Plot](https://en.wikipedia.org/wiki/Gunpowder_Plot)!
+
 <p align="center" width="100%">
     <a href="https://en.wikipedia.org/wiki/Ut_queant_laxis">
         <img src="img/Ut_Queant_Laxis_MT.png">
     </a>
 </p>
 
-Most of these issues would not exist if we followed the [Open Source Model](https://en.wikipedia.org/wiki/Open-source_model) or at the very least, the rules were made Clear and Transparent. Obscurity and deception games culminate in [Solitude](https://en.wikipedia.org/wiki/Solitude), delusional quests for [Anonymity](https://en.wikipedia.org/wiki/Anonymity), [Aggression and Violent Behavior](https://en.wikipedia.org/wiki/Aggression_and_Violent_Behavior) and acts of [Terrorism](https://en.wikipedia.org/wiki/Terrorism). Please bear in mind [Guy Fawkes](https://en.wikipedia.org/wiki/Guy_Fawkes) was a terrorist (hence an idiot) and so was [Robert Catesby](https://en.wikipedia.org/wiki/Robert_Catesby) ring leader of the failed [Gunpowder Plot](https://en.wikipedia.org/wiki/Gunpowder_Plot)!
-
-<p align="center" width="100%">
-    <a href="https://www.compoundchem.com/2014/01/22/the-chemistry-of-an-onion/">
-        <img src="img/onion_heart.png">
-    </a>
-</p>
+[Mi](https://en.wikipedia.org/wiki/Solf%C3%A8ge) is a beautiful musical note but unless if you are composing something like [4'33''](https://en.wikipedia.org/wiki/4%E2%80%B233%E2%80%B3) **WE** need more musical notes to create a [𝄞 melody 𝄢](https://www.youtube.com/watch?v=80D3vkuLaxs). 
 
 Whilst I am an adept of [Transparent Behavior](https://en.wikipedia.org/wiki/Transparency_(behavior)), I also like "fair game" and I highly value my [personal autonomy](https://en.wikipedia.org/wiki/Autonomy) which should not be put in jeopardy by being forced into unemployment and welfare via cybertorture extrajudicial sentences so that I can't support myself and my "laptop" and "mobile phone" being set as targets to be destroyed under states of extreme exhaustion via sleep deprivation by sadists out of control who draw pleasure from generating synthetic psychotic behavior.
-
-[Mi](https://en.wikipedia.org/wiki/Solf%C3%A8ge) is a beautiful musical note but unless if you are composing something like [4'33''](https://en.wikipedia.org/wiki/4%E2%80%B233%E2%80%B3) **WE** need more musical notes to create a [𝄞 melody 𝄢](https://www.youtube.com/watch?v=80D3vkuLaxs). 
 
 The notes of this [𝄞 *Operetta di Cipolla* 𝄢](https://iovs.arvojournals.org/article.aspx?articleid=2409430) are the following:
 
@@ -114,6 +108,12 @@ My former neighbor and some former acquaintances:
 
 0. [**Nuno Correia**](https://pt.linkedin.com/in/nuno-correia-383a86154) and Carla Maria Marinho Rodrigues, 
 0. [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) and his criminal associates [**Tiago Jorge Roque**](https://www.facebook.com/tiago.j.roque), João Leiria and several other current and former employees at [Tapada Crew](https://www.tapadacrew.com/), infecting society with their morbid comedy and poisonous psychotic behavior, promoting a criminal sub-culture, destroying families and degrading others in an attempt to rise up the social ladder!
+
+<p align="center" width="100%">
+    <a href="https://www.compoundchem.com/2014/01/22/the-chemistry-of-an-onion/">
+        <img src="img/onion_heart.png">
+    </a>
+</p>
 
 #### [My cybertorture story >>>](MentisMorbumTuum.md)
 
