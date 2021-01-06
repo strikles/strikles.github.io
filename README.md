@@ -4,6 +4,24 @@
 0. [A/HRC/RES/13/19 - the role and responsibility of judges, prosecutors and lawyers](https://documents-dds-ny.un.org/doc/UNDOC/GEN/G10/129/70/PDF/G1012970.pdf?OpenElement)
 0. [A/HRC/RES/10/24 - the role and responsibility of medical and other health personnel](https://ap.ohchr.org/documents/E/HRC/resolutions/A_HRC_RES_10_24.pdf)
 
+
+<p align="center" width="100%">
+    <a href="img/Psyops-400x400.png">
+        <img src="img/Four_Freedoms_Flag_or_United_Nations_Honour_Flag_ca_1943-1948.svg">
+    </a>
+</p>
+
+The Four Freedoms were goals articulated by United States President Franklin D. Roosevelt on Monday, January 6, 1941. In an address known as the [Four Freedoms speech](https://en.wikisource.org/wiki/The_Four_Freedoms_speech) (technically the 1941 State of the Union address), he proposed four fundamental freedoms that people "everywhere in the world" ought to enjoy:
+
+0. [Freedom of speech](https://en.wikipedia.org/wiki/Freedom_of_speech)
+0. [Freedom of worship](https://en.wikipedia.org/wiki/Freedom_of_worship)
+0. [Freedom from want](https://en.wikipedia.org/wiki/Freedom_from_want)
+0. [Freedom from fear](https://en.wikipedia.org/wiki/Freedom_from_fear)
+
+> Roosevelt delivered his speech 11 months before the surprise Japanese attack on U.S. forces in Pearl Harbor, Hawaii that caused the United States to declare war on Japan, December 8, 1941. The State of the Union speech before Congress was largely about the national security of the United States and the threat to other democracies from world war that was being waged across the continents in the eastern hemisphere. In the speech, he made a break with the long-held tradition of United States non-interventionism. He outlined the U.S. role in helping allies already engaged in warfare.
+
+> In that context, he summarized the values of democracy behind the bipartisan consensus on international involvement that existed at the time. A famous quote from the speech prefaces those values: "As men do not live by bread alone, they do not fight by armaments alone." In the second half of the speech, he lists the benefits of democracy, which include economic opportunity, employment, social security, and the promise of "adequate health care".
+
 ## [José Saramago, Religious Offence and Freedom of Speech](https://en.wikipedia.org/wiki/Religious_offense)
 Nobel Prize winner [**José Saramago**](https://en.wikipedia.org/wiki/Jos%C3%A9_Saramago) went into exile as a symbolic gesture on the Spanish island of Lanzarote in 1992 when the Government of Portugal under Prime Minister [Aníbal Cavaco Silva](https://en.wikipedia.org/wiki/An%C3%ADbal_Cavaco_Silva) ordered the removal of one of his works [**The Ghospel according to Jesus Christ**](https://en.wikipedia.org/wiki/The_Gospel_According_to_Jesus_Christ) from the Aristeion Prize's shortlist, claiming the work was religiously offensive.
 
@@ -93,17 +111,6 @@ My former neighbor and some former acquaintances:
 
 0. [**Nuno Correia**](https://pt.linkedin.com/in/nuno-correia-383a86154) and Carla Maria Marinho Rodrigues, 
 0. [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) and his criminal associates [**Tiago Jorge Roque**](https://www.facebook.com/tiago.j.roque), João Leiria and several other current and former employees at [Tapada Crew](https://www.tapadacrew.com/), infecting society with their morbid comedy and poisonous psychotic behavior, promoting a criminal sub-culture, destroying families and degrading others in an attempt to rise up the social ladder!
-
-The Four Freedoms were goals articulated by United States President Franklin D. Roosevelt on Monday, January 6, 1941. In an address known as the [Four Freedoms speech](https://en.wikisource.org/wiki/The_Four_Freedoms_speech) (technically the 1941 State of the Union address), he proposed four fundamental freedoms that people "everywhere in the world" ought to enjoy:
-
-0. [Freedom of speech](https://en.wikipedia.org/wiki/Freedom_of_speech)
-0. [Freedom of worship](https://en.wikipedia.org/wiki/Freedom_of_worship)
-0. [Freedom from want](https://en.wikipedia.org/wiki/Freedom_from_want)
-0. [Freedom from fear](https://en.wikipedia.org/wiki/Freedom_from_fear)
-
-> Roosevelt delivered his speech 11 months before the surprise Japanese attack on U.S. forces in Pearl Harbor, Hawaii that caused the United States to declare war on Japan, December 8, 1941. The State of the Union speech before Congress was largely about the national security of the United States and the threat to other democracies from world war that was being waged across the continents in the eastern hemisphere. In the speech, he made a break with the long-held tradition of United States non-interventionism. He outlined the U.S. role in helping allies already engaged in warfare.
-
-> In that context, he summarized the values of democracy behind the bipartisan consensus on international involvement that existed at the time. A famous quote from the speech prefaces those values: "As men do not live by bread alone, they do not fight by armaments alone." In the second half of the speech, he lists the benefits of democracy, which include economic opportunity, employment, social security, and the promise of "adequate health care".
 
 #### [My cybertorture story >>>](MentisMorbumTuum.md)
 
