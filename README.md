@@ -165,13 +165,7 @@ In Portugal an article under the title ["Mental illness is inevitable"](https://
     </a>
 </p>
 
-Whilst I do agree with the statement that "the current world is making us (more) sick" due to evidence of [cybertorture](https://www.undocs.org/A/HRC/43/49) and psychiatric abuse worldwide being denounced by the United Nations, I stronly disagree with notions of “inevitable mental illness".
-
-> [Daniel Amen](https://en.wikipedia.org/wiki/Daniel_Amen) was born in Encino, California, in July 1954 to Lebanese immigrant parents. He received his undergraduate biology degree from Southern California College in 1978 and his medical degree from Oral Roberts University School of Medicine in 1982. Amen did his general psychiatric training at the [Walter Reed Army Medical Center in Washington, D.C.](https://en.wikipedia.org/wiki/Walter_Reed_Army_Medical_Center), and his child and adolescent psychiatry training at Tripler Army Medical Center in Honolulu. Amen is double board certified by the American Board of Psychiatry and Neurology in General Psychiatry and Child and Adolescent Psychiatry.
-
-Dr. Amen is the author of [The End of Mental Illness: How Neuroscience Is Transforming Psychiatry and Helping Prevent or Reverse Mood and Anxiety Disorders, ADHD, Addictions, PTSD, Psychosis, Personality Disorders, and More](https://www.amazon.com/End-Mental-Illness-Neuroscience-Transforming/dp/1496438159)
-
-Further publicly disclosed information in the field of [Neuroscience](https://www.cell.com/neuron/pdf/S0896-6273(18)30011-4.pdf) has been made available and awareness to alternative therapeutic approaches to conventional pharmacotherapy such as the use of [electroceuticals](https://www.darpa.mil/program/electrical-prescriptions) is being raised!
+Whilst I do agree with the statement that "the current world is making us (more) sick" due to evidence of [cybertorture](https://www.undocs.org/A/HRC/43/49) and psychiatric abuse worldwide being denounced by the United Nations, I stronly disagree with notions of “inevitable mental illness" and forced conventional pharmacotherapy!
 
 The Declaration of Hawaii issued by the World Psychiatric Association in 1977 and updated in 1983 in Vienna was initiated because of political abuse of psychiatry in some countries in the seventies. This led to a long process of investigation and concern within the domain of professional ethics and paved the way for the Declaration of Madrid, which was endorsed by the General Assembly of the World Psychiatric Association in Madrid in 1996.
 
@@ -197,6 +191,12 @@ The Declaration of Madrid has now been superseded by the 2020 WPA Code of Ethics
 
 0. [The Right to Refuse Medical Treatment under the European Convention on Human Rights](https://academic.oup.com/medlaw/article-abstract/9/1/17/973865).
 0. [European Court of Human Rights Thematic Report - Health-related issues in the case-law of the European Court of Human Rights](https://www.echr.coe.int/Documents/Research_report_health.pdf)
+
+Dr. Amen is the author of [The End of Mental Illness: How Neuroscience Is Transforming Psychiatry and Helping Prevent or Reverse Mood and Anxiety Disorders, ADHD, Addictions, PTSD, Psychosis, Personality Disorders, and More](https://www.amazon.com/End-Mental-Illness-Neuroscience-Transforming/dp/1496438159)
+
+> [Daniel Amen](https://en.wikipedia.org/wiki/Daniel_Amen) was born in Encino, California, in July 1954 to Lebanese immigrant parents. He received his undergraduate biology degree from Southern California College in 1978 and his medical degree from Oral Roberts University School of Medicine in 1982. Amen did his general psychiatric training at the [Walter Reed Army Medical Center in Washington, D.C.](https://en.wikipedia.org/wiki/Walter_Reed_Army_Medical_Center), and his child and adolescent psychiatry training at Tripler Army Medical Center in Honolulu. Amen is double board certified by the American Board of Psychiatry and Neurology in General Psychiatry and Child and Adolescent Psychiatry.
+
+Further publicly disclosed information in the field of [Neuroscience](https://www.cell.com/neuron/pdf/S0896-6273(18)30011-4.pdf) has been made available and awareness to alternative therapeutic approaches to conventional pharmacotherapy such as the use of [electroceuticals](https://www.darpa.mil/program/electrical-prescriptions) is being raised!
 
 ## [Diagnostic and Statistical Manual of Mental Disorders](https://en.wikipedia.org/wiki/Diagnostic_and_Statistical_Manual_of_Mental_Disorders)
 
