@@ -213,6 +213,24 @@ Dr. Amen is the author of [The End of Mental Illness: How Neuroscience Is Transf
 
 ## [Electroceuticals](https://www.scientificamerican.com/article/electroceuticals/)
 
+Electroceuticals—devices that treat ailments with electrical impulses—have a long history in medicine. Think pacemakers for the heart, cochlear implants for the ears and deep-brain stimulation for Parkinson’s disease.
+
+<p align="center" width="100%">
+    <a href="https://www.amazon.com/Pleasure-Shock-Stimulation-Forgotten-Inventor/dp/1101986530">
+        <img src="img/t_electroceuticals.png">
+    </a>
+</p>
+
+The electrifying, forgotten history of Robert Heath's brain pacemaker, investigating the origins and ethics of one of today's most promising medical breakthroughs: deep brain stimulation
+
+> The technology invented by psychiatrist Robert G. Heath in the 1950s and '60s has been described as among the most controversial experiments in US history. His work was alleged at the time to be part of MKUltra, the CIA's notorious "mind control" project. His research subjects included incarcerated convicts and gay men who wished to be "cured" of their sexual preference. Yet his cutting-edge research and legacy were quickly buried deep in Tulane University's archives. Investigative science journalist Lone Frank now tells the complete sage of this passionate, determined doctor and his groundbreaking neuroscience.
+
+> More than fifty years after Heath's experiments, this very same treatment is becoming mainstream practice in modern psychiatry for everything from schizophrenia, anorexia, and compulsive behavior to depression, Parkinson's, and even substance addiction.
+
+> Lone Frank uncovered lost documents and accounts of Heath's trailblazing work. She tracked down surviving colleagues and patients, and she delved into the current support for deep brain stimulation by scientists and patients alike. What has changed? Why do we today unquestioningly embrace this technology as a cure? How do we decide what is a disease of the brain to be cured and what should be allowed to remain unrobed and unprodded? And how do we weigh the decades of criticism against the promise of treatment that could be offered to millions of patients?
+
+> Elegantly written and deeply fascinating, The Pleasure Shock weaves together biography, scientific history, and medical ethics. It is an adventure into our ever-shifting views of the mind and the fateful power we wield when we tinker with the self.
+
 Publicly disclosed information in the field of [Neuroscience](https://www.cell.com/neuron/pdf/S0896-6273(18)30011-4.pdf) has been made available and awareness to alternative therapeutic approaches to conventional pharmacotherapy such as the use of [electroceuticals](https://www.darpa.mil/program/electrical-prescriptions) is being raised!
 
 ![](img/electrxhasth.png)
