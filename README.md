@@ -216,8 +216,8 @@ Dr. Amen is the author of [The End of Mental Illness: How Neuroscience Is Transf
 Electroceuticals—devices that treat ailments with electrical impulses—have a long history in medicine. Think pacemakers for the heart, cochlear implants for the ears and deep-brain stimulation for Parkinson’s disease.
 
 <p align="center" width="100%">
-    <a href="img/lone_frank.jpg">
-        <img src="img/t_electroceuticals.png">
+    <a href="https://www.amazon.com/Pleasure-Shock-Stimulation-Forgotten-Inventor/dp/1101986530">
+        <img src="img/lone_frank.jpg">
     </a>
 </p>
 
