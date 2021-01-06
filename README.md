@@ -351,10 +351,6 @@ Social honeypots for individuals with psychopathological issues filled with hate
 
 ## [**_Quod Nihil Scitur_**](https://plato.stanford.edu/entries/francisco-sanches/)
 
-<!--
-For the past 3 decades you preyed upon families by resorting to [Cognitive Biases](https://en.wikipedia.org/wiki/List_of_cognitive_biases) and lack of a [Neurolaw](https://en.wikipedia.org/wiki/Neurolaw) framework, [Neurorights and Mental Freedom awareness](https://www.frontiersin.org/research-topics/14276/neurorights-and-mental-freedom-emerging-challenges-to-debates-on-human-dignity-and-neurotechnologies) by attempting to portrait individuals as being "Insane" resorting to distorting **_Faith Trials over Synthetic Telepathy_** and presenting that content to others as **_proof_** the SUT believes he is either **God** or the **Devil**, attempting to portrait SUTs as being Pedos, Xenophobes, Homophobes, Misogynistic, and attempt to **Direct Violence towards Parents and Women**, 
--->
-
 To those who enforce [Extrajudicial Sentences](https://en.wikipedia.org/wiki/Extrajudicial_punishment) of [Cyber Torture](https://www.undocs.org/A/HRC/43/49) (setting Cyber Sodomy, [Cognitive Impairment](https://en.wikipedia.org/wiki/Cognitive_deficit) and Synthetic Pain as a standard in our society) paired with [**Psychiatric Abuse**](https://en.wikipedia.org/wiki/Political_abuse_of_psychiatry) (violating every principle in the [**World Psychiatric Association Code of Ethics**](https://www.wpanet.org/policies)) towards **Stratifying Society** and making a circus out of the Judicial System, articulating Tongues and Jaws of SUT's for entertainment, Directing violence towards Parents and Women to Corrupt Data of **Threat Assessment Systems** like [**MOSAIC**](https://en.wikipedia.org/wiki/MOSAIC_threat_assessment_systems) and performing **Flawed Science** on mixed bags of data consisting of patients with **Real Psychopathological Illness** mixed with **Victims of Cybertorture**, **Delaying Progress** and **Raising Paranoia** to important therapeutical methods that could help make the world a better place such as [**Electroceuticals**](https://www.sciencedirect.com/science/article/pii/S0019483217308131)...
 
 <p align="center" width="100%">
@@ -369,6 +365,9 @@ I will not allow [Collaborationists](https://en.wikipedia.org/wiki/Collaboration
 
 I am very 🏳️‍🌈 Happy 🏳️‍🌈 with my **Very Male Gender**, and am NOT Gender Dysphoric in any way as some attempted to insinuate, going as far as resorting to Remote Vibrotactile Genital Torture, Cyber Sodomy and forcing a misdiagnosis of Paranoid Schizophrenia in an attempt to force acts of self-harm), and I would like to remind those in Portugal behaving like primates and engaging in a Mars versus Venus banana quest, namely DJ's and Psychiatrists leading humanity astray, and others worldwide, the quest for [**Gender Equality**](https://www.un.org/en/sections/issues-depth/gender-equality/) also includes [**Intersex People**](https://en.wikipedia.org/wiki/Hermaphrodite) ;)
 
+I've vowed to fight inequality as part of my Catholic Confirmation Rite and to do something for society upon leaving Colégio Militar. As such I have taken vows of cellibacy to make sure we will achieve our objective! Also I don't need your **"Trowel and Plumb line"**, [**I'll use my 2 Fingers instead ✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
+
+## E-mail to Professor Marcelo Rebelo de Sousa
 Dear President Marcelo Rebelo de Sousa
 (and former students from Colégio Militar, Largo da Luz, Portugal - who worked under your security staff, law enforcement agents like Pedro Miguel Grilo @PSP and other criminal associates recruited to divert attention)
 
@@ -430,8 +429,6 @@ Given the way in which me and my family have been treated for the past few decad
 
 A not particularly humble, happy or subservient Portuguese citizen (by force)
 Bundecto (10^-33)
-
-I've vowed to fight inequality as part of my Catholic Confirmation Rite and to do something for society upon leaving Colégio Militar. As such I have taken vows of cellibacy to make sure we will achieve our objective! Also I don't need your **"Trowel and Plumb line"**, [**I'll use my 2 Fingers instead ✌️**](https://www.youtube.com/watch?v=yGQgdE50QA4)
 
 ## [Enduring Cybertorture :)](EnduringCybertorture.md)
 
