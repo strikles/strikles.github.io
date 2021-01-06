@@ -380,8 +380,8 @@ Within the context of the Holy Trinity, God (the father) is everything, not an a
 It may be a good idea to keep in mind the story of George Lemaître and Pope Pius XXII
 
 <p align="center" width="100%">
-    <a href="img/Emblem_Trinitarian_Order_Rome.jpg">
-        <img src="img/Emblem_Trinitarian_Order_Rome.jpg">
+    <a href="img/Emblem_Trinitarian_Order_Rome.png">
+        <img src="img/Emblem_Trinitarian_Order_Rome.png">
     </a>
 </p>
 
