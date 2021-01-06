@@ -225,6 +225,8 @@ Publicly disclosed information in the field of [Neuroscience](https://www.cell.c
 
 > Following successes in early proof-of-concept studies, the ElectRx devices and therapeutic systems under development are entering into clinical studies. If successful, such precise neuromodulation capability technology would reduce dependence on traditional drugs and create new treatments that could be automatically and continuously tuned to the needs of warfighters without side effects. The technology could also help doctors evaluate and predict various physiological states, and characterize host response in patients with severe infections, providing a quantitative framework to guide operations and therapy.
 
+DARPA provides ;)
+
 <p align="center" width="100%">
     <a href="https://www.compoundchem.com/2014/01/22/the-chemistry-of-an-onion/">
         <img src="img/t_electroceuticals.png">
@@ -362,4 +364,3 @@ I've vowed to fight inequality as part of my Catholic Confirmation Rite and to d
          <img src="img/Screenshot 2020-12-14 at 23.27.47.png" style="width:100%;">
       </a>
 </div>
-DARPA provides. Thank you ;)
