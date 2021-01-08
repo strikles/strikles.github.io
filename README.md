@@ -363,6 +363,13 @@ I shall refer to you as Grand Master Bundecca (10^33)
 
 Deus Caritas Est means "God is LOVE". 
 
+
+<p align="center" width="100%">
+    <a href="https://www.youtube.com/watch?v=yXKrBTYGY_M">
+        <img src="img/img_797x448$2018_03_08_18_26_15_289032.jpg">
+    </a>
+</p>
+
 Within the context of the Holy Trinity, God (the father) is everything, not an anthropomorphic alien species that may have interacted with primates in the past to create humankind, or any other very low probability hypothesis of intelligent design creationism which would be nothing more than a subset of God (the Father) as the SUPERSET - Everything (which encompasses the Universe, said aliens species and accounts for events reffered to as "miracles of creation") making the whole Great Architect of the Universe concept being associated to God (the father) sound idiotic and irrational!
 
 It may be a good idea to keep in mind the story of George Lemaître and Pope Pius XXII
