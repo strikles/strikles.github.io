@@ -199,7 +199,18 @@ In Portugal an article under the title ["Mental illness is inevitable"](https://
     </a>
 </p>
 
-Whilst I do agree with the statement that "the current world is making us (more) sick" due to evidence of [cybertorture](https://www.undocs.org/A/HRC/43/49) and psychiatric abuse worldwide being denounced by the United Nations, I stronly disagree with notions of “inevitable mental illness" and forced conventional pharmacotherapy!
+**Whilst I do agree with the statement that "the current world is making us (more) sick" due to evidence of [cybertorture](https://www.undocs.org/A/HRC/43/49) and psychiatric abuse worldwide being denounced by the United Nations, I stronly disagree with notions of “inevitable mental illness" and forced conventional pharmacotherapy paired with cybertorture, cybersodomy, vibrotactile genital torture and simulating Van Gogh's Syndrome.**
+
+#### [Psychiatry and the dark side: eugenics, Nazi and Soviet psychiatry Published online by Cambridge University Press](https://www.cambridge.org/core/journals/advances-in-psychiatric-treatment/article/psychiatry-and-the-dark-side-eugenics-nazi-and-soviet-psychiatry/5A5950F52D74D0B5FC5418642C5211D1)
+02 January 2018, Jason Luty
+
+> Psychiatrist Thomas Szasz fought coercion (compulsory detention) and denied that mental illness existed. Although he was regarded as a maverick, his ideas are much more plausible when one discovers that between 1939 and 1941, up to 100 000 mentally ill people, including 5000 children, were killed in Nazi Germany. In the course of the Nazi regime, over 400 000 forced sterilisations took place, mainly of people with mental illnesses. Other countries, including Denmark, Norway, Sweden and Switzerland, had active forced sterilisation programmes and eugenics laws. Similar laws were implemented in the USA, with up to 25 000 forced sterilisations. These atrocities were enabled and facilitated by psychiatrists of the time and are only one example of the dark side of the profession. This article reviews some of these aspects of the history of psychiatry, including Germany's eugenics programme and the former USSR's detention of dissidents under the guise of psychiatric treatment.
+
+> ‘Men (wretched creatures that they are) worry less about doing an injury to one who makes himself loved than to one who makes himself feared’ (The Prince, Niccolo Machiavelli, 1532).
+
+> The objective of this article is to familiarise mental health professionals and lay readers with the rather colourful and disdainful history of psychiatry, particularly the political abuses of mental health legislation. The debate about legislative changes (including legislation for ‘dangerous severe personality disorder’ in the UK) often seems arcane and unnecessary until set in the context of these historical abuses of the mental health system.
+
+> Some psychiatrists have abused power in general. For example, although the war crimes for which Radovan Karadžić is currently standing trial do not arise from his psychiatric practice, it is salutary to note that he is far from being the first psychiatrist to be accused (or convicted) of crimes against humanity. However, Thomas Szasz controversially argued that there is something inherent in psychiatry, particularly the power to restrict liberty, that tends towards abuse if not regulated by the legal or political system. In the past, there have been abuses of psychiatrists’ powers to detain people, but these have been instigated at the direction of governments such as that in Nazi Germany (leading to genocide of mentally ill people) and the USSR (where political dissidents were detained with a diagnosis of ‘sluggish schizophrenia’).
 
 [The World Psychiatry Association](https://www.wpanet.org/) has a new code of ethics [2020/OGA/7](pdf/e172f3_4cecd522c2d448c7944342ba88c527e5.pdf)
 
