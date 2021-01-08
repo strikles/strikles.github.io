@@ -424,7 +424,7 @@ Given the way in which me and my family have been treated for the past few decad
 
 <p align="center" width="100%">
     <a href="img/img_797x448$2018_03_08_18_26_15_289032.jpg">
-        <img src="img/img_797x448$2018_03_08_18_26_15_289032.jpg">
+        <img src="img/adolf.jpeg">
     </a>
 </p>
 
