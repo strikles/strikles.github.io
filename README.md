@@ -365,8 +365,8 @@ Deus Caritas Est means "God is LOVE".
 
 
 <p align="center" width="100%">
-    <a href="https://www.youtube.com/watch?v=yXKrBTYGY_M">
-        <img src="img/img_797x448$2018_03_08_18_26_15_289032.jpg">
+    <a href="img/naom_5b33dc85736c0.jpg">
+        <img src="img/naom_5b33dc85736c0.jpg">
     </a>
 </p>
 
