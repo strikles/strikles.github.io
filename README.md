@@ -417,7 +417,7 @@ Given the way in which me and my family have been treated for the past few decad
 
 <p align="center" width="100%">
     <a href="https://www.youtube.com/watch?v=yXKrBTYGY_M">
-        <img src="">
+        <img src="img/hand_shake_battle.jpeg">
     </a>
 </p>
 
@@ -431,7 +431,7 @@ To those who enforce [Extrajudicial Sentences](https://en.wikipedia.org/wiki/Ext
 
 <p align="center" width="100%">
     <a href="https://www.youtube.com/watch?v=yGQgdE50QA4">
-        <img src="img/hand_shake_battle.jpeg">
+        <img src="img/t_electroceuticals.png">
     </a>
 </p>
 
