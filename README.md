@@ -199,7 +199,7 @@ In Portugal an article under the title ["Mental illness is inevitable"](https://
     </a>
 </p>
 
-**Whilst I do agree with the statement that "the current world is making us (more) sick" due to evidence of [cybertorture](https://www.undocs.org/A/HRC/43/49) and psychiatric abuse worldwide being denounced by the United Nations, I stronly disagree with notions of “inevitable mental illness" and forced conventional pharmacotherapy paired with cybertorture, cybersodomy, vibrotactile genital torture and simulating Van Gogh's Syndrome.**
+**Whilst I do agree with the statement that "the current world is making us (more) sick" due to evidence of [cybertorture](https://www.undocs.org/A/HRC/43/49) and psychiatric abuse worldwide being denounced by the United Nations, I stronly disagree with notions of “inevitable mental illness" and forced conventional pharmacotherapy paired with cybertorture, cybersodomy, vibrotactile torture (includimng genital) to simulate [Van Gogh Syndrome](https://en.wikipedia.org/wiki/Van_Gogh_syndrome).**
 
 #### [Psychiatry and the dark side: eugenics, Nazi and Soviet psychiatry Published online by Cambridge University Press](https://www.cambridge.org/core/journals/advances-in-psychiatric-treatment/article/psychiatry-and-the-dark-side-eugenics-nazi-and-soviet-psychiatry/5A5950F52D74D0B5FC5418642C5211D1)
 02 January 2018, Jason Luty
