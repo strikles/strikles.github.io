@@ -212,6 +212,13 @@ In Portugal an article under the title ["Mental illness is inevitable"](https://
 
 > Some psychiatrists have abused power in general. For example, although the war crimes for which Radovan Karadžić is currently standing trial do not arise from his psychiatric practice, it is salutary to note that he is far from being the first psychiatrist to be accused (or convicted) of crimes against humanity. However, Thomas Szasz controversially argued that there is something inherent in psychiatry, particularly the power to restrict liberty, that tends towards abuse if not regulated by the legal or political system. In the past, there have been abuses of psychiatrists’ powers to detain people, but these have been instigated at the direction of governments such as that in Nazi Germany (leading to genocide of mentally ill people) and the USSR (where political dissidents were detained with a diagnosis of ‘sluggish schizophrenia’).
 
+
+<p align="center" width="100%">
+    <a href="https://www.cambridge.org/core/journals/advances-in-psychiatric-treatment/article/psychiatry-and-the-dark-side-eugenics-nazi-and-soviet-psychiatry/5A5950F52D74D0B5FC5418642C5211D1">
+        <img src="img/urn_cambridge.org_id_binary_20180507083959417-0479_S1355514600011378_S1355514600011378_fig2g.jpeg">
+    </a>
+</p>
+
 [The World Psychiatry Association](https://www.wpanet.org/) has a new code of ethics [2020/OGA/7](pdf/e172f3_4cecd522c2d448c7944342ba88c527e5.pdf)
 
 The Declaration of Hawaii issued by the World Psychiatric Association in 1977 and updated in 1983 in Vienna was initiated because of political abuse of psychiatry in some countries in the seventies. This led to a long process of investigation and concern within the domain of professional ethics and paved the way for the Declaration of Madrid, which was endorsed by the General Assembly of the World Psychiatric Association in Madrid in 1996.
