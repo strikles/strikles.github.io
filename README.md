@@ -431,7 +431,7 @@ To those who enforce [Extrajudicial Sentences](https://en.wikipedia.org/wiki/Ext
 
 <p align="center" width="100%">
     <a href="https://www.youtube.com/watch?v=yGQgdE50QA4">
-        <img src="img/IMG_0469.JPG">
+        <img src="img/hand_shake_battle.jpeg">
     </a>
 </p>
 
