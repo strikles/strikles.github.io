@@ -417,7 +417,7 @@ Given the way in which me and my family have been treated for the past few decad
 
 <p align="center" width="100%">
     <a href="https://www.youtube.com/watch?v=yXKrBTYGY_M">
-        <img src="img/hand_shake_battle.jpeg">
+        <img src="img/img_797x448$2018_03_08_18_26_15_289032.jpg">
     </a>
 </p>
 
