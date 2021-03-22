@@ -115,6 +115,7 @@ Other former Colégio Militar students who are/were @PSP Officers:
 My former neighbor and some former acquaintances:
 
 ![](img/576A2FF0-8F2E-44F7-8C52-2ACBF8F00E18.jpeg)
+![](img/85A8AFA7-D599-4A99-90C7-08DCFC7E16BD.jpeg)
 ![](img/9209E6E2-EE56-4157-95B9-30BACDA2160A.jpeg)
 
 0. [**Nuno Correia**](https://pt.linkedin.com/in/nuno-correia-383a86154) and Carla Maria Marinho Rodrigues, 
