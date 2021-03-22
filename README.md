@@ -112,6 +112,8 @@ Other former Colégio Militar students who are/were @PSP Officers:
 
 My former neighbor and some former acquaintances:
 
+![](img/576A2FF0-8F2E-44F7-8C52-2ACBF8F00E18.jpeg)
+
 0. [**Nuno Correia**](https://pt.linkedin.com/in/nuno-correia-383a86154) and Carla Maria Marinho Rodrigues, 
 0. [**Gonçalo Bandeira Duarte**](https://pt.linkedin.com/in/gon%C3%A7alo-duarte-b71078107?trk=people-guest_people_search-card) and his criminal associates [**Tiago Jorge Roque**](https://www.facebook.com/tiago.j.roque), João Leiria and several other current and former employees at [Tapada Crew](https://www.tapadacrew.com/), infecting society with their morbid comedy and poisonous psychotic behavior, promoting a criminal sub-culture, destroying families and degrading others in an attempt to rise up the social ladder!
 
