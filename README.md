@@ -95,6 +95,7 @@ The notes of this [𝄞 *Operetta di Cipolla* 𝄢](https://iovs.arvojournals.or
 0. Using me and my family as involuntary clowns in a circus of extrajudicial trials and sentences whilst acting in the utmost arrogance trying to hide under the cover of criminal association with prominent members of society to give me a pointless moral lesson, relying both on lack of legislation and someone to enforce it!
 
 The following [collaborationists](https://en.wikipedia.org/wiki/Collaborationism) and their criminal associates participated in different ways in delivering tortuous payloads repeatedly trying to generate self-harm human degradation content for the extrajudicial circus. Some gave their full heart to the cause, others tried to exact their sentences in a suave and effortless fashion, and others attempted to maximize impact attempting to be as poisonous as they could, resorting to controlling my tongue with phrases combining corruption of words like "Police", "Portugal", "Catholic" and "Netherlands" revealing their true psychotic nature ;)
+![](img/D7CCF9AF-18DF-410B-B923-CF706A14C4B1.jpeg)
 
 Former Colégio Militar students who are/were @PSP Officers connected to the security staff of the President of the Portuguese Republic
 
