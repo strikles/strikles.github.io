@@ -100,8 +100,10 @@ The following [collaborationists](https://en.wikipedia.org/wiki/Collaborationism
 
 Former Colégio Militar students who are/were @PSP Officers connected to the security staff of the President of the Portuguese Republic
 
-0. [**José Ricardo Nazareth Carvalho Figueira**](https://dre.pt/home/-/dre/73841274/details/maximized)
+![](img/0535BA2D-8A78-4C1E-B12A-C91A92B89F0D.jpeg)
+
 0. **Luis Nazareth Carvalho Figueira** (17 at Colégio Militar)
+0. [**José Ricardo Nazareth Carvalho Figueira**](https://dre.pt/home/-/dre/73841274/details/maximized)
 0. [**Tito Eurico Miranda Fernandes**](https://dre.pt/home/-/dre/115800591/details/maximized) (15 at Colégio Militar)
 
 These guys act as 3 stooges by collaborating in Faith Trials and behaving like [The HumancentiPad who cannot read](https://www.southparkstudios.nu/episodes/j6a6zs/south-park-humancentipad-season-15-ep-1). Maybe they can read the following 
