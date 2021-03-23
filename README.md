@@ -224,7 +224,7 @@ In Portugal an article under the title ["Mental illness is inevitable"](https://
 
 <p align="center" width="100%">
     <a href="https://www.cambridge.org/core/journals/advances-in-psychiatric-treatment/article/psychiatry-and-the-dark-side-eugenics-nazi-and-soviet-psychiatry/5A5950F52D74D0B5FC5418642C5211D1">
-        <img src="img/urn_cambridge.org_id_binary_20180507083959417-0479_S1355514600011378_S1355514600011378_fig2g.jpeg">
+        <img src="img/311D039F-A50E-4932-95B3-41B3DCEF8B77.jpeg">
     </a>
 </p>
 
