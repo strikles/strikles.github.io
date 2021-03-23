@@ -63,6 +63,7 @@ During our first interview he insinuated this was being done to me due to my lac
 **_Psychiatrists who behave like this violating the [WPA Code of Ethics](https://www.wpanet.org/policies) seem to have more psychopathological issues than the patients they pretend to treat and remind me of South Park character Dr. William Janus - Season 15, Episode 6 - [City Sushy](https://www.southparkstudios.com/episodes/dhi2tb/south-park-city-sushi-season-15-ep-6)_**
 
 This was followed by a videocall interview at the Mentrum Emergency Psychiatry Clinic in Eerste Constantijn Huygensstraat to talk to an independent psychiatrist and assert if I was a danger to myself where I found a statue named "How to meet an Angel" by Ilya and Emilia Kabakov was installed!
+![](img/278E1789-81FD-4E6C-8F9A-41EFEEEA7761.jpeg)
 
 <div class="bg-warning">
 To the care of Ilya and Emilia Kabakov,
@@ -74,7 +75,7 @@ I write regarding the art piece "How to meet an Angel" installed at the Mentrum 
 
 <p align="center" width="100%">
     <a href="https://nl.wikipedia.org/wiki/How_to_meet_an_angel">
-        <img src="img/1200px-Eerste_Constantijn_Huygenstraat_foto_2.jpg" width="33%">
+        <img src="img/1200px-Eerste_Constantijn_Huygenstraat_foto_2.jpg" width="100%">
     </a>
 </p>
 
