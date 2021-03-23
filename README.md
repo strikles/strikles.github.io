@@ -203,8 +203,8 @@ In Portugal an article under the title ["Mental illness is inevitable"](https://
 > It's like watching a conversation: on the “Think. To feel. Living ”, we read Judite Sousa's questions and received the answers from [Diogo Telles Correia](https://www.amazon.com.br/Livros-Diogo-Telles-Correia), psychiatrist, psychotherapist and professor at the Faculty of Medicine of Lisbon. The result is a book that paints an accessible picture of what is the “inevitable” mental illness in the 21st century, the time of the hurried man, with no time to reflect; the child's time clinging to television or school books, hyperactive and unstoppable; the time of depression and anxiety, harassment at work and potentially psychopathic politicians. To Expresso, the specialist clarifies by email if the current world is making us (more) sick and tells us which professions are most affected by a world in which it seems prohibited to stop.
 
 <p align="center" width="100%">
-    <a href="img/Psyops-400x400.png">
-        <img src="img/Psyops-400x400.png">
+    <a href="img/94BC168C-55C8-43BA-A762-D654C2902A32.jpeg">
+        <img src="img/94BC168C-55C8-43BA-A762-D654C2902A32.jpeg">
     </a>
 </p>
 
