@@ -4,33 +4,6 @@
 0. [A/HRC/RES/13/19 - the role and responsibility of judges, prosecutors and lawyers](https://documents-dds-ny.un.org/doc/UNDOC/GEN/G10/129/70/PDF/G1012970.pdf?OpenElement)
 0. [A/HRC/RES/10/24 - the role and responsibility of medical and other health personnel](https://ap.ohchr.org/documents/E/HRC/resolutions/A_HRC_RES_10_24.pdf)
 
-## [Four Freedoms](https://en.wikipedia.org/wiki/Four_Freedoms)
-
-The Four Freedoms were goals articulated by United States President Franklin D. Roosevelt on Monday, January 6, 1941. In an address known as the [Four Freedoms speech](https://en.wikisource.org/wiki/The_Four_Freedoms_speech) (technically the 1941 State of the Union address), he proposed four fundamental freedoms that people "everywhere in the world" ought to enjoy:
-
-0. [Freedom of speech](https://en.wikipedia.org/wiki/Freedom_of_speech)
-0. [Freedom of worship](https://en.wikipedia.org/wiki/Freedom_of_worship)
-0. [Freedom from want](https://en.wikipedia.org/wiki/Freedom_from_want)
-0. [Freedom from fear](https://en.wikipedia.org/wiki/Freedom_from_fear)
-
-<p align="center" width="100%">
-    <a href="https://en.wikipedia.org/wiki/Four_Freedoms_(Norman_Rockwell)">
-        <img src="img/Norman_Rockwell.png">
-    </a>
-</p>
-
-> Roosevelt delivered his speech 11 months before the surprise Japanese attack on U.S. forces in Pearl Harbor, Hawaii that caused the United States to declare war on Japan, December 8, 1941. The State of the Union speech before Congress was largely about the national security of the United States and the threat to other democracies from world war that was being waged across the continents in the eastern hemisphere. In the speech, he made a break with the long-held tradition of United States non-interventionism. He outlined the U.S. role in helping allies already engaged in warfare.
-
-> In that context, he summarized the values of democracy behind the bipartisan consensus on international involvement that existed at the time. A famous quote from the speech prefaces those values: "As men do not live by bread alone, they do not fight by armaments alone." In the second half of the speech, he lists the benefits of democracy, which include economic opportunity, employment, social security, and the promise of "adequate health care".
-
-<p align="center" width="100%">
-    <a href="https://en.wikipedia.org/wiki/United_Nations_Honour_Flag">
-        <img src="img/Four_Freedoms_Flag_or_United_Nations_Honour_Flag_ca_1943-1948.svg">
-    </a>
-</p>
-
-> The United Nations Honour Flag (also termed the United Nations Flag, the Honour Flag, or the Four Freedoms Flag, with alternate spelling "Honor" also used) was a flag symbolizing the Allies of World War II and their goal of world peace. It was designed in October 1942 by Brooks Harding (who was inspired by Franklin D. Roosevelt's Four Freedoms speech of January 1941), and it had some degree of use as a flag from 13 June 1943 to c. 1948 to represent the "United Nations" in the sense of the January 1942 Declaration by United Nations. However, it was never an official flag of the United Nations as an organization (which was founded in 1945, and adopted a different flag of the United Nations in 1946).
-
 ## [José Saramago, Religious Offence and Freedom of Speech](https://en.wikipedia.org/wiki/Religious_offense)
 Nobel Prize winner [**José Saramago**](https://en.wikipedia.org/wiki/Jos%C3%A9_Saramago) went into exile as a symbolic gesture on the Spanish island of Lanzarote in 1992 when the Government of Portugal under Prime Minister [Aníbal Cavaco Silva](https://en.wikipedia.org/wiki/An%C3%ADbal_Cavaco_Silva) ordered the removal of one of his works [**The Ghospel according to Jesus Christ**](https://en.wikipedia.org/wiki/The_Gospel_According_to_Jesus_Christ) from the Aristeion Prize's shortlist, claiming the work was religiously offensive.
 
@@ -179,6 +152,34 @@ Grotesque examples:
 0. forcing the SUT to roam the streets aimlessly to spend all his money by combining all of the above
 0. nurturing [addictive behaviour](https://en.wikipedia.org/wiki/Addiction) by combining all of the above
 0. Intensifying this methodology when in close proximity to others, prior to scheduled events or festive occasions such as birthdays, Christmas and New Years Eve
+
+
+## [Four Freedoms](https://en.wikipedia.org/wiki/Four_Freedoms)
+
+The Four Freedoms were goals articulated by United States President Franklin D. Roosevelt on Monday, January 6, 1941. In an address known as the [Four Freedoms speech](https://en.wikisource.org/wiki/The_Four_Freedoms_speech) (technically the 1941 State of the Union address), he proposed four fundamental freedoms that people "everywhere in the world" ought to enjoy:
+
+0. [Freedom of speech](https://en.wikipedia.org/wiki/Freedom_of_speech)
+0. [Freedom of worship](https://en.wikipedia.org/wiki/Freedom_of_worship)
+0. [Freedom from want](https://en.wikipedia.org/wiki/Freedom_from_want)
+0. [Freedom from fear](https://en.wikipedia.org/wiki/Freedom_from_fear)
+
+<p align="center" width="100%">
+    <a href="https://en.wikipedia.org/wiki/Four_Freedoms_(Norman_Rockwell)">
+        <img src="img/Norman_Rockwell.png">
+    </a>
+</p>
+
+> Roosevelt delivered his speech 11 months before the surprise Japanese attack on U.S. forces in Pearl Harbor, Hawaii that caused the United States to declare war on Japan, December 8, 1941. The State of the Union speech before Congress was largely about the national security of the United States and the threat to other democracies from world war that was being waged across the continents in the eastern hemisphere. In the speech, he made a break with the long-held tradition of United States non-interventionism. He outlined the U.S. role in helping allies already engaged in warfare.
+
+> In that context, he summarized the values of democracy behind the bipartisan consensus on international involvement that existed at the time. A famous quote from the speech prefaces those values: "As men do not live by bread alone, they do not fight by armaments alone." In the second half of the speech, he lists the benefits of democracy, which include economic opportunity, employment, social security, and the promise of "adequate health care".
+
+<p align="center" width="100%">
+    <a href="https://en.wikipedia.org/wiki/United_Nations_Honour_Flag">
+        <img src="img/Four_Freedoms_Flag_or_United_Nations_Honour_Flag_ca_1943-1948.svg">
+    </a>
+</p>
+
+> The United Nations Honour Flag (also termed the United Nations Flag, the Honour Flag, or the Four Freedoms Flag, with alternate spelling "Honor" also used) was a flag symbolizing the Allies of World War II and their goal of world peace. It was designed in October 1942 by Brooks Harding (who was inspired by Franklin D. Roosevelt's Four Freedoms speech of January 1941), and it had some degree of use as a flag from 13 June 1943 to c. 1948 to represent the "United Nations" in the sense of the January 1942 Declaration by United Nations. However, it was never an official flag of the United Nations as an organization (which was founded in 1945, and adopted a different flag of the United Nations in 1946).
 
 <!--
 ## The Chemistry of Emotions
