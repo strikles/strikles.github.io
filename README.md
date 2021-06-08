@@ -20,7 +20,6 @@ In 2004 José Saramago published his novel [**Seeing**](https://en.wikipedia.org
 </p>
 
 ## Mentis Morbum Tuum 𝄫
-
 ![](img/CA7C242F-9991-4520-BB88-71FE0641C21C.jpeg)
 #### I've exiled myself in the Netherlands and I refuse to return to Portugal under any terms or conditions where this treatment has been aggravated by Former [Colégio Militar](https://www.colegiomilitar.pt/) Students. Some worked for the security staff of the President of the Portuguese Republic and engaged in a Megalomaniac plot since I was 14 years old to exact an extrajudicial sentence of intercourse sabotage with involuntary perineum contractions, directing violence towards women and my parents. This has been pilled upon with a perpetual sentence of cognitive impairment misdiagnosed as paranoid schizophrenic as a coverup under constant vibrotactile genital torture and cyber Sodomy to force self-harm!
 
@@ -85,6 +84,7 @@ During our first interview he insinuated this was being done to me due to my lac
 **_Psychiatrists who behave like this violating the [WPA Code of Ethics](https://www.wpanet.org/policies) seem to have more psychopathological issues than the patients they pretend to treat and remind me of South Park character Dr. William Janus - Season 15, Episode 6 - [City Sushy](https://www.southparkstudios.com/episodes/dhi2tb/south-park-city-sushi-season-15-ep-6)_**
 
 This was followed by a videocall interview at the Mentrum Emergency Psychiatry Clinic in Eerste Constantijn Huygensstraat to talk to an independent psychiatrist and assert if I was a danger to myself where I found a statue named "How to meet an Angel" by Ilya and Emilia Kabakov was installed!
+
 ![](img/278E1789-81FD-4E6C-8F9A-41EFEEEA7761.jpeg)
 
 <div class="bg-warning">
