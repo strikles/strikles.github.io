@@ -1,6 +1,7 @@
 # Petitions
 
 0. [close colégio militar](https://chng.it/8FtDcsvG)
+0. [replace extrajudicial cyber torture with remote neurostimulation of PNS](https://www.change.org/p/ant%C3%B3nio-costa-replace-extrajudicial-cybertorture-with-remote-neurostimulation-of-pns-to-end-narcotraffic)
 
 ## [Cybertorture Related Resolutions by The United Nations](https://www.dignity.dk/wp-content/uploads/III-Overview-of-resolutions-by-Human-Rights-Council-UN-General-Assembly-on-torture-1990-2020.pdf)
 0. [A/HRC/43/49 - The United Nations introduces the term Cybertorture](https://www.undocs.org/A/HRC/43/49)
