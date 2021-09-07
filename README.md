@@ -1,6 +1,6 @@
 # Petitions
 
-0. [replace extrajudicial sentence cyber torture with remote neurostimulation of PNS](https://www.change.org/p/ant%C3%B3nio-costa-replace-extrajudicial-cybertorture-with-remote-neurostimulation-of-pns-to-end-narcotraffic)
+0. [replace extrajudicial cybertorture sentences with remote healthcare and neurostimulation of PNS for recreational purposes](https://www.change.org/p/ant%C3%B3nio-costa-replace-extrajudicial-cybertorture-with-remote-neurostimulation-of-pns-to-end-narcotraffic)
 0. [close colégio militar or reform it to bring dignity to the school](https://chng.it/8FtDcsvG)
 
 ## [Cybertorture Related Resolutions by The United Nations](https://www.dignity.dk/wp-content/uploads/III-Overview-of-resolutions-by-Human-Rights-Council-UN-General-Assembly-on-torture-1990-2020.pdf)
