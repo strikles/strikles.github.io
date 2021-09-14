@@ -1,6 +1,7 @@
 # Petitions
 
 0. [Exonerate Pedro Miguel Grilo from PSP](https://chng.it/Rhx8cpLm)
+0. [Expel Emile Barkhof from Arkin FACT](https://chng.it/SzGKL6SJ)
 0. [Close colégio militar or reform it to bring dignity to the school](https://chng.it/8FtDcsvG)
 0. [Replace cybertorture w/ remote healthcare and recreational neurostimulation of PNS to end narcotraffic](https://www.change.org/p/ant%C3%B3nio-costa-replace-extrajudicial-cybertorture-with-remote-neurostimulation-of-pns-to-end-narcotraffic)
 
