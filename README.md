@@ -1,5 +1,6 @@
 # Petitions
 
+0. [Convict Jasper Kums for attempted murder](https://chng.it/SrSsSyBS)
 0. [Expel Pedro Miguel Grilo and Tito Eurico Miranda Fernandes from PSP](https://chng.it/Rhx8cpLm)
 0. [Expel Emile Barkhof from Arkin FACT](https://chng.it/SzGKL6SJ)
 0. [Close colégio militar or reform it to bring dignity to the school](https://chng.it/8FtDcsvG)
