@@ -3,7 +3,7 @@
 0. [Convict Jasper Kums for attempted murder](https://chng.it/SrSsSyBS)
 0. [Expel Pedro Miguel Grilo and Tito Eurico Miranda Fernandes from PSP](https://chng.it/Rhx8cpLm)
 0. [Expel Emile Barkhof from Arkin FACT](https://chng.it/SzGKL6SJ)
-0. [Close colégio militar or reform it to bring dignity to the school](https://chng.it/8FtDcsvG)
+0. [Rename Colégio Militar (largo da luz. Portugal) and sever its ties with former students](https://chng.it/FvYgG4fB)
 0. [Replace cybertorture w/ remote healthcare and recreational neurostimulation of PNS to end narcotraffic](https://www.change.org/p/ant%C3%B3nio-costa-replace-extrajudicial-cybertorture-with-remote-neurostimulation-of-pns-to-end-narcotraffic)
 
 ## [Cybertorture Related Resolutions by The United Nations](https://www.dignity.dk/wp-content/uploads/III-Overview-of-resolutions-by-Human-Rights-Council-UN-General-Assembly-on-torture-1990-2020.pdf)
