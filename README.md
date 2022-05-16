@@ -1,6 +1,16 @@
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_king.png"></p>
 
 
+
+## [Cybertorture Related Resolutions by The United Nations](https://www.dignity.dk/wp-content/uploads/III-Overview-of-resolutions-by-Human-Rights-Council-UN-General-Assembly-on-torture-1990-2020.pdf)
+
+
+0. [A/HRC/43/49 - The United Nations introduces the term Cybertorture](https://www.undocs.org/A/HRC/43/49)
+0. [A/74/148 - The United Nations offers recommendations to prevent Domestic Violence](https://undocs.org/A/74/148)
+0. [A/HRC/RES/13/19 - the role and responsibility of judges, prosecutors and lawyers](https://documents-dds-ny.un.org/doc/UNDOC/GEN/G10/129/70/PDF/G1012970.pdf?OpenElement)
+0. [A/HRC/RES/10/24 - the role and responsibility of medical and other health personnel](https://ap.ohchr.org/documents/E/HRC/resolutions/A_HRC_RES_10_24.pdf)
+
+
 ## Mentis Morbum Tuum
 
 
@@ -145,15 +155,6 @@ governments worldwide (except for chile) are still denying us **neurorights**, w
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/mary.png"></p>
-
-
-## [Cybertorture Related Resolutions by The United Nations](https://www.dignity.dk/wp-content/uploads/III-Overview-of-resolutions-by-Human-Rights-Council-UN-General-Assembly-on-torture-1990-2020.pdf)
-
-
-0. [A/HRC/43/49 - The United Nations introduces the term Cybertorture](https://www.undocs.org/A/HRC/43/49)
-0. [A/74/148 - The United Nations offers recommendations to prevent Domestic Violence](https://undocs.org/A/74/148)
-0. [A/HRC/RES/13/19 - the role and responsibility of judges, prosecutors and lawyers](https://documents-dds-ny.un.org/doc/UNDOC/GEN/G10/129/70/PDF/G1012970.pdf?OpenElement)
-0. [A/HRC/RES/10/24 - the role and responsibility of medical and other health personnel](https://ap.ohchr.org/documents/E/HRC/resolutions/A_HRC_RES_10_24.pdf)
 
 
 ## [José Saramago, Religious Offence and Freedom of Speech](https://en.wikipedia.org/wiki/Religious_offense)
