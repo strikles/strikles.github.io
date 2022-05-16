@@ -145,7 +145,7 @@ governments worldwide (except for chile) are still denying us **neurorights**, w
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/mary.png"></p>
 
 
-#### [Want to read more ? >>>](MORE.md)
+#### [> Want to read more ?](MORE.md)
 
 
 ### footnotes:
